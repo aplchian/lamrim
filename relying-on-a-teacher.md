@@ -105,9 +105,59 @@ The Array of Stalks Sutra states that you should respect and serve your guru wit
 
 1. **Attitude which is like a dutifull child** - Give up your independence and submit to your gurus will. 
 2. **The attitude which is like a diamond** - This means to make the relationship between teacher and student close and stable, not to be split apart by anyone.
-3. **The Attitude which is like the Earth** - 
+3. **The Attitude which is like the Earth** - This means to take on all the responsibilites of the guru's activites and to not become dispirited by any of the responsibilites asked of you.
+4. **How to Assume Responsibilities** - This itself contains 6 - 1. 	
+  1. **Attitude like the foothills.** which means that any suffering that may arise does not sway you. 
+  2. **Attitude like a worldy servant**  - perform even the worst tasks in their entirety without wavering
+  3. **Attitude like a sweeper** - get rid of all pride and feelings of superiority and consider yourself to be lower than your guru. 'The water of good qualities do not collect on the heights of pride'
+  4. **Attitude like a foundation** - means to take on the heavy responsibilities of the most arduous activites of your guru with pleasure
+  5. **Attitude like a dog** - means to not get angry with your guru berates or despises you. Persist tirelessly, respectfully, and diligently seek the teachings.
+  6. **Attitude like a ferry** - not to tire of deeds for your gurus sake no matter how many times you engage in your gurus activities
 
 #### **b. In particular, training in faith, the root**
+```
+Faith is the best of vehicles,
+Definitly delivering you to Buddhahood,
+Therefore persons of intelligence 
+Rely on the guidance of faith
+
+Virtue will not arise
+In people who hav no faith
+Just as green sprouts do not grow
+From seeds scorched by fire.
+
+- Ten Teachings Sutra
+```
+Thus in light of what you gain when it is present and what you lose when it is not present, faith is the basis of all good qualities.
+
+```
+If you would ask o lord of secrets, how disciples should view masters, then I would answer that they should view them just as they view the bhagavan.
+
+If the Disciples view their masters this way
+They will always cultivate virtues
+They will become Buddhas
+And benefit the entire world
+
+-Tantra bestowing the initiation of Vajrapani
+```
+
+When your recognize someone as the buddha you will not see faults in them and only pay attention to their good qualities. Likewise completely cast away your conception of faults in your guru, and train yourself to discern your gurus good qualities
+
+```
+Keep the masters good qualities in mind
+Never seize upon their faults
+Keeping their good qualities in mind you will reach attainments
+Seizing upon their faults you will not.
+
+-Tantra bestowing the initiation of Vajrapani
+```
+
+If you examine your guru for their faults this will block your own attainments
+
+Therefor once you have accepted someone as your guru, contemplate the disadvantages of examining their faults. Repeatedly think about the tendency and stop it. Take pains to confess it and restrain yourself from ever doing it again.  Once you do this, the influence of that conception will gradually diminish.
+
+Moreover pay attention to the good qualities your guru does have -- such as ethical discipline, learnedness, faith, etc -- and reflect on these qualities.
+
 
 
 
