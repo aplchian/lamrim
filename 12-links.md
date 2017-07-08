@@ -1,4 +1,4 @@
-12 Links of Dependent Origination
+# 12 Links of Dependent Origination
 
 In order to gain the powerful motivation required to follow the path to the end, we need to begin with a clear realization of what's wrong with samsara.
 
@@ -183,3 +183,12 @@ But regardless of the nature of that life, in the end it will undoubtedly culmin
 Although practitioners who have maintained excellent ethical conduct die with their minds and bodies at ease -- the death process, in general, is one of severe pain and sorrow.
 
 The chain of dependent origination by which beings continue to cycle in samsara inevitably ends with the pain and sorrow of its final link: death
+
+
+
+
+
+## The condensed presentation of the links.
+
+Therefore, for one person's single life, all the causes have carried out their function before birth. First, the projecting cause(Ignorace, formative action, and consciousness), projected name and form, the 6 sense bases, contact, and feeling, then later when these are brought to fruition by the actualizing causes, those very same projected factors become the actualized factors of birth, aging, and death. In short in one life all the causes must operate before the fruition of the actualized effects.
+

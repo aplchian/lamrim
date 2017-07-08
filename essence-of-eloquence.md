@@ -18,7 +18,16 @@ The extreme of reification is negated by showing that everything is ultimately e
 
 
 > If the aggregates, such as form exist, it is possible to designate 'person'.  If held as non-existant
-> 
+
+
+-
+
+
+> When one thing does not exist in another, that other is empty of the one, but what remains(of the other) does exist. Such insight is the accurate penetrations of emptiness
+ 
+ 
+ 
+**Thus abandoning the extreme of reification eliminates absolutism, and abandoning the extreme of repuditation eliminates nihilism, and hence non-duality is manifested. Such emptiness is explained to be the final ultimate.**
 
 
 
