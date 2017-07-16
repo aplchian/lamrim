@@ -406,4 +406,6 @@ The thought of renunciation is the foundation of all further progress on the pth
 
 
 
+---
 
+## Khamtrul Rinpoche Notes
