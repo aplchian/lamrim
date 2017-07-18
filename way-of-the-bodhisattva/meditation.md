@@ -26,3 +26,18 @@ When will we be free from the backward glances and second thoughts about the fut
 Where we can wander and remain at will, being released from all dependency, free from all sense of ownership and consequent attachment.
 
 ##28.
+
+Live with few possessions of no value, living without the need to hide either ourselves or our belongings for fear of theives or predators, unafraid of being seen or harmed?
+
+## 29. 
+
+When we look at corpses rotting, we should reflect that just to they were once owned and cherished, and that like our bodies now, they were unable to bear with heat, cold, and disease. We should see how the corpses are like our own bodies; they are exactly the same type of thing. We should remember that however alive they seem now, however much we cherish them, and however sensitive they are, out bodies are at no time different than the corpses we see. We should recall that our bodies are just the same as the corpses... and become accustom to this idea. 
+
+## 30.
+
+We should reflect on the fact that this body of ours will soon be rotting.. but right now it seems so alive. It will give out a stench that jackels and wolves wont want. This is our bodies destiny and it will be there very soon.
+
+## 31. 
+
+This body that has come from our mothers womb.. that seems to whole and integral .. The flesh and bone that life has knit apart will soon fall apart.  When we die it will disentegrate.
+
