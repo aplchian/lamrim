@@ -63,3 +63,135 @@ Since it is a fact[don] and it is supreme[dam pa] as well, it is ultimate [don d
 Lama Tsongkhapa says that Chandrakirti does not maintain as do others that the uncontaminated wisdome of meditative equipose is the supreme and that the ultimate is its object. He instead maintains that 'ultimate truth' indicates both that it is a fact and that it is supreme. The respect in which ultimate truth is truth is that it is non deceptive.
 
 ### Ultimate Mind
+
+What distinguishes ultimate from conventional truth is not the object, but it is the way the object is ascertained by the mind.
+
+Analyzed by a conventional mind, the object is a conventional truth; analyzed my an ultimate mind, which sees the lack of inherent existanceof the object, it is in an ultimate truth. Not that emptiness is tacked on as something separate ... the object is the same
+
+
+```
+The Buddha says that all things have 2 aspects,
+And they may be perceived correctly or falsely.
+What is perceived correctly is ultimate truth,
+And what is perceived falsely is conventional truth.
+
+-Chandrakirti
+```
+
+Within every existant thing or event are 2 aspects... the aspect found by 'perceivers of reality', and those by 'perveivers of falsities'.
+
+All things have these 2 aspects.
+
+A perceiver of reality is called an 'ultimate mind'. The aspect found by such a mind is called an ultimate truth, emptiness, or thusness.
+
+The aspect found by a *perceiver of falsities* is called a conventional truth.
+
+There are not 2 different minds, just 2 different minds modes of inquiry.
+
+## Illusion and Reality
+
+###The relationship between the 2 minds
+
+Understanding how the relative truth and the ultimate truth are related is a vital point in understanding the subtle line between illusion and reality.
+
+For the lower schools, objects exist as real, and upon them is placed one characteristic; selflessness or emptiness.
+
+First, we must be clear that conventional truth and ultimate truth are not the same. A phenomena like body is conventional truth, and it *has* an ultimate truth. There is phenomena that is both conventional and ultimate.
+
+When we have a mind that realizes the final mode of existance of our 'I' -- which is its absense of inherent nature-- its emptiness or ultimate truth, we cannot simultaneously have a mind that realizes the conventional reality of our 'I.'
+
+Understanding that my body is impermanent will immediately stop my grasping at it as permanent, because these 2 are mutually exclusive phenomena.
+
+If we could have a good understanding of how the body is impermanent and is a product, that would go a long way towards losing attachment to the body.
+
+Many masters such as Nagarjuna say that enormous fear arises as our sense of I and its real mode of existance become closer.
+
+The false grasping at a sense of intrinsic identity creates fear as we feel we are losing identity and becoming non existant -- of course we are terrified. All that is happening is the appearance of the object and its acual mode of existance are getting closer together.
+
+The buddhas do indeed perceive these 2 natures simultaneously in one object.
+
+### How things exist
+
+#### The truth that conceals
+
+Generally we feel we can discern what's reality and whats not... the car we drive is real, while batman is not.. etc.
+
+#### How things exist conventionally
+
+It is necessary to differentiate between:
+
+1. conventional truth
+2. conventional existance - to exist dependent on causes and conditions
+
+That empty interdependence is the mode of existance of all things, including all conventional truths and ultimate truths
+
+
+How does one determine whether something exists conventionally?
+
+1. It is known to a conventional consciousness - We know an object through our senses, and thats about as far as it goes.. not all objects of a conventionally consciousness exist however.
+2. No other conventionally valid cognition contradicts it being so known
+3. Reason that accurately analyzes the reality of whether something inherently exists does no contradict it.
+
+We hold anything that fails to meet these criteria as non existant
+
+So it cants be invalidated by another valid conventional consciousness or a mind analalyzing its final mode of existance, its emptiness.
+
+**Without these 3 criteria a phenomenon cannot be said to conventionally exist**
+
+In relation to the 3rd criteria, .. an ultimate mind will not contradict the convetional assertion that pleasure and pain arise conventionally from positive and negative actions, whereas it will contradict the conventional assertion that pleasure and pain arise from a creator god or a primal essence.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
