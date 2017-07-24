@@ -81,4 +81,87 @@ ex. when our body is threatened we would not experience strong grasping at self 
 
 Thus, neither within the aggregates or outside the aggregates can we find any tangible or real thing at all that we can call 'self'
 
-pg. 74
+
+'Mine' is a characteristic of the self, for the thought 'I am' immediately gives rise to the thought 'mine'. 'Mine' grasps at objects related to the self. The egoist view sees everything in relation to the instinsically existant 'I'. In fact, if we examine the world around us, we cannot speak of good and bad, or samsara and nirvana, without thinking from the perspective of an 'I'. We cannnon speak of anything at all.
+
+Once the self becomes untenable, then our whole understanding of a world based on distinguishing self from others, 'mine' from 'not mine' falls apart.
+
+Because the self and mine cease, the grasping at them also does not arise. 
+
+Aryadeva says that when you no longer see a self in relation to an object, then the root of cyclic existance will come to an end. 
+
+The yogi who has brought an end to grasping at 'I' and 'mine' is himself not intrinsically real.
+
+What appears to the mind of the person who has ascertained the absence of self and its properites is only the absence of all conceptual elaborations.
+
+**Our understanding of intrinsic existance should not remail partial, such that we negate the instrinsic existance of something things but not of others. We need to develop a profound understanding of emptiness so that our perception of the lack of intrinsic existance encomposses the entire spectrum of reality and becomes totally free of any conceptual elaboration whatsoever. The understanding is one of mere absense, a simple negation of intrinsic existance**
+
+### Dismantling the causes of cyclic existance
+```
+When thoughts of 'I' and 'mine' are extinguished
+With respect to the inner and outer, 
+the process of appropriation ceases;
+this having ceased, birth ceases
+
+-Nagarjuna
+```
+
+Inner and outer can be understood as the conception of self as either among or apart from the aggregates. When grasping at self and mine ceases, then because no more larmic potentials related to external or internal phenomena are activated, the 9th link -- grasping will not occur. We will no longer grasp at objects or enjoyment and turn away from things we deem unattractive.
+
+Although we possess karmic potentials, they are no longer activated by craving and graspin, and when this happens, birth in cyclic existance, the 11th link can no longer occur. This is how birth comes to an end.
+
+Therefore as we deepen our understanding of emptiness, the potency of our karma to propel rebirth in cyclic existance is undermined.
+
+Once we gain a direct realization of emptiness, we no longer accumulate karma to propel rebirth in cyclic existance. 
+
+As we deepen our realization it will permeate our entire experience and destroy the afflictions. We eventually elimate the root of grasping at instrinsic existance altogether and the continuity of rebirth in cyclic existance is cut. 
+
+This is true freedom or liberation, where we no longer create new karma through ignorance, where no conditions exist to activate new karma, and where the afflictions have been destroyed at their root.
+
+
+```
+Karma and the afflictions having ceased, there is liberation;
+karma and afflictions arise from conceptualizations;
+these in turn arise from elaboration;
+and elaboration ceases through emptiness
+```
+
+Birth in cyclic existance arises through the power of karma.
+Karma arises from afflictions.
+Afflictions arise from false projections onto objects.
+
+The term conceptualizations above refers to false projections. 
+The false projectsions arise from conceptual elaborations, in particular... those grasping at the intrinsic existance of objects.
+
+When the conceptual elaboration of grasping at intrinsic existence ceases through insight into emptiness, the whole nexus is destroyed.
+
+This is how the third noble truth 'cessation' is attainable.
+
+The creation of new karma is brought to an end through directly seeing the truth, and that stage is called the path of seeing.
+
+This is the first stage of true cessation. Later, when we have eliminated the afflictions entirely and have become an arhat, we will have then attained the final cessation.
+
+### Presenting the 4th Noble Truth
+
+So far we have looked at the first 3 truths.
+
+Now we must ask: 'How do we meditate on the absense of conceptual elaborations that is seen by the noble ones in their direct perception of emptiness?'
+
+Conceptual elaboration can mean different things in different contexts. Conceptual elaboration, for ex can refer to grasping at inherent existance, **but it can also refer to the conceptually constructed object of such grasping**
+
+Such conceptualized, reified objects to not exist even on the conventional level, and it is these conceptual elaborations that are the object of negations in emptiness meditation.
+
+**In the context here, conceptual elaboration refers to the mind that grasps at the inherent existance of phenomena.
+**
+When Nagarjuna says that conceptual elaboration ceases through emptiness, he means that the wisdom that realizes emptiness -- and not emptness itself -- counters directly the mode of apprehension of grasping.
+
+**Ignorance grasps at the inherent existance of all phenomena, wheras the wisdom realizing emptiness negates the inherent existance of phenomena.**
+
+Both focus on the same object, but they relate to it in a dramatically opposed manner... thus it is by the realization of emptiness that grasping is eliminated.
+
+By means of realizing emptiness , conceptual elaborations come to an end.
+
+It can also be understood as: "conceptual elaborations cease within emptiness"
+
+In other words, since self-grasping ignorance is a mental factor that, along with misconceiving phenomena in general, also misconveives the nature of mind itself ( which is by nature luminour and clear light, devoid of intrinsic nature), then when you realize emptiness, you gain insight into the true nature of mind. When that happens, the grasping at the inherent existance of the mind that falsely conceives the nature of mind will come to and end.  In this interpretation it is within the minds own emptiness that conceptual elaborations are pacified.
+
