@@ -1,3 +1,47 @@
+#Tenets
+
+Base - how a particular school perceives the manner of existence of phenomena
+Path - What should be adopted and what abandoned based on a thorough knowledge of the base
+Result - Goal that a practioner attains through following the path
+
+This is the standard template used in the monastaries to explain each school.
+
+
+#Vaibhashika
+
+Also called the *Great Exposition School* 
+
+###Divisions of Phenomena
+This school is the least sophisticated, but their approach to the classification of phenomena has carried over to the other schools.
+
+Before taking an extensive investigation into *how* things exist, it is very useful to be clear *what* exists in the universe.
+
+The overall structure and concepts used in vaibhashika classification apply to the other schools.
+
+#### Componded and Uncomponded phenomena
+
+existant things are presented in 2 categories:
+
+1. compounded 
+ - synonym for 
+2. uncompounded
+ - something that is not created by the coming together of causes and conditions
+ - something that does not change moment by moment during its existance
+ - something that cannot perform a functions
+
+**The main examples of uncompounded phenomena are space and the 2 types of cessations:**
+
+ - **Non-analytical cessation** - temporary ceasing of certain types of negativities, misperceptions, and so on when we enter the medatative concentration that interupts our attachment to sensory objects
+ - **Analytical cessation** - occurs by means of the meditation analyzing the reality of things and events and is complete cessation in that there is no reversal. It is the full cessation 
+
+*Space* is the mere absence of obstruction; as such it is not the result of any causes and conditions
+
+
+ 
+
+
+
+-----------
 #Madhyamaka
 
 Prasangika's do say external objects exist, but simply because they are perceived by a conventional valid cognition that is not investigating their ultimate nature.
