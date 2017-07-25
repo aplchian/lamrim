@@ -23,7 +23,10 @@ The overall structure and concepts used in vaibhashika classification apply to t
 existant things are presented in 2 categories:
 
 1. compounded 
- - synonym for 
+ - synonym for impermanent phenomena and refers to those things that come into being from causes and conditions
+ - form - refers also sounds and smells + color, shape, etc
+ - consciousness - all mental events - 6 main consciousness'
+ - nonassociated compositional factors - all other phenomena that come together due to causes and conditions but dont fit into the other 2 categories. A classic example is an image we see in a dream. Allthough the dream itself is consciousness the image that appears is not, nor is it form. -- also abstract phenomena such as time, aging, birth, and the very important phenomena of a person. The "I" is neither form nor consciousness, but it comes into existance due to causes and conditions.
 2. uncompounded
  - something that is not created by the coming together of causes and conditions
  - something that does not change moment by moment during its existance
@@ -37,7 +40,85 @@ existant things are presented in 2 categories:
 *Space* is the mere absence of obstruction; as such it is not the result of any causes and conditions
 
 
+### Two truths
+
+Unlike the mahayana schools, there is no real comparable presentation of the 2 truths in this school or the next, even though the terms conventional and ultimate are often used in connection with other things.
+
+The main focus of this schools presentation is on the 37 aspects of the path to enlightenment. These 37 are divided into 7 groups.
+
+These 37 are the main focus for both the vaibasheka and sautantrika.
+
+**A mundane contaminated consciousness -- one that has not realized emptiness or selflessness -- knows conventional truths, whereas supermundane or uncontaminated consciousness - one that has realized selflessness directly - knows ultimate truth** 
+
+##Conventional Truth, and Imputed Existance
+
+**This verse from Vasubandhu explains their view of conventional and ultimate truth most clearly:**
+
+```
+If the awareness of something does not operate after that thing
+Is destroyed or mentally separated into other things,
+Then that thing exists conventionally, like a pot or water.
+Others exist ultimately.
+```
  
+When an object is destroyed or mentally separated into parts, the mind can no longer hold onto that object; therefore it is a conventional truth.
+
+For example a glass jar that falls and breaks. After it breaks the mind can't hold onto it anymore.
+
+For mental events, the object cant be destroyed, but it can be separated into parts.. an hour can be separated into minutes... time can be mentally 'separated'
+
+**Objects that have this quality are called conventional truths**
+
+These are examples of **imputedlty existant objects**
+
+**imputedlty existant objects and conventional truth are synonyms**
+
+Conversely if the object is not a collection of parts, but is the actual substance that makes up those parts, then it is a **substantially existant object**
+
+imputedlty existant => conventional truth
+substantially existant => ultimate truth
+
+^^ these terms have different meanings in the other school so dont confuse them!
+
+This category of conventional truth fits with the 3 types of compounded phenomena from earlier. That which can be destroyed is form, that which can be mentally separated is consciousness and nonassociated compounded phenomena.
+
+
+##Ultimate Truth, and Substantial Existance
+
+```
+Other than those are the ultimate truths, because even if the mind is separated from the object, such as when the object is destroyed, the mind apprehending it still operates, for ex. the mind apprehending form.
+```
+
+Other here refers to anything that cannot be destroyed or mentally separated into other things. This is ultimate truth according to this school. Which is synonymous with substantial existance.
+
+What can't be broken down?
+
+3 Categories:
+
+1. aggregates
+2. uncompounded phenomena
+3. substantial particles (of matter or mind)
+
+For this school, although the collections that make up an object can be separated more and more, the aggregate itself (form, feeling, etc) cannot. They differentiate between something having form and form itself. 
+
+For ex. if you have a body that has form and you break it down into smaller particles, it is still form. **The mind apprehending form is never destroyed.**
+
+Ex. A glass jar as glass jar is a conventional truth, but as a form its a ultimate truth. If it breaks, the 'jar' is gone, but the 'form' is still there.
+
+Happiness is conventional, but feeling is ultimate
+
+For this school, ultimate and conventional truth can coexist within one object.
+
+The body as a conventional truth, and the body as form as an ultimate truth.
+
+For this school, uncompounded phenomena are an ultimate truth.. space, cessation.
+
+**Substantial Objects** are ultimate truths. These are the fundamental building blocks of the universe called **partless particles, or in the case of mental events, partless moments of consciousness.**  They are ultimate because they cannot be destroyed or further reduced... and the mind that apprehends these partless particles will never be stopped. They are substantially existant because their existance is not dependent on other substances.
+
+## Ultimate Truth, Selflessness, and Emptiness
+
+pg. 47
+
 
 
 

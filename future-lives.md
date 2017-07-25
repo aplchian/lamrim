@@ -199,3 +199,71 @@ Carefully study these hells number, length of time spent there, the cause of bei
 If you are content to just listen and know this intellectually without making it a living experience, you will just become one of those obdurate and arrogant practioners criticized by sublime beings and condemned by the wise.
 
 Whether or not you have practiced the teachings you have received is one thing, but not to know atleast the words and terms involved is truly shameful.
+
+
+
+## Contemplating the suffering of the Hungry Ghosts
+
+Those who are exceedingly miserly are born as hungry ghosts. These beings are hungry and thirsty and their skin, flesh, and blood, are dessicated, giving them the appearance of burnt logs. Their faces are covered with hair, their mouths are extremely dry, and their tongues lick their lips constantly.
+
+There are 3 types of hungry ghosts:
+
+1. **Hungry Ghosts who have external obstacles for obtaining food and drink** - When these being approach springs, lakes, rivers, etc being holding long swords, knives, and spears block their way. Or else, the water appears to be blood and pus and they lose their desire to drink.
+2. **Hungry Ghosts who have internal obstacles for obtaining food and drink** - the beings have goiters and great bellies, but their mouths, which spew flames are as small as the eye of a needle. Though others do not prevent them, they are unable to ingest food and drink even when they obtain it.
+3. **Hungry Ghosts who have obstacles within the food and drink** - Some of these hungry ghosts, unable to make use of clan and wholesome food and drink, cut their own flesh and eat it. Those called **Possessing a garland of flames** are burned because whatever they eat or drink burst into flames.  Those called **Filth-eaters** can only ingest dirty, stinking, harmful, and despicable things, and so they eat feces and drink urine.
+
+
+
+```
+Hungry ghosts never heal the suffering 
+Of destitution due to desire
+They are subject to very fierce suffering
+Produced by hunger, thirst, cold, heat, exhaustion, and fear
+
+Some, with mouths the size of mere needle's eye
+And stomachs as round as mountains,
+Are tormented by hunger, lacking the energy to search
+for even a bit of filthy garbage
+
+Some have bodies of skin and bones, like a leafless tree,
+Like a palmtree without its top.
+Some, mouths on fire each night,
+Eat food that causes their mouths to blaze
+
+Some wretched ones do not even find the filth 
+such as pus, excrement, blood, and the like;
+Hitting each others faces' they drink the pus
+That oozes from the ripe goiters of their neck
+
+For these hungry ghosts in summer
+the moon is hot, and in winter the sun is cold
+For them fruit trees turn fruitless;
+Their mere glance dries up a stream
+
+-Nagarjuna
+```
+
+The first verse talks about the general suffering, and the rest talk about specific suffering. 'Exhaustion' comes from running after food. 'Fear' refers to the terror of seeing beings holding swords, clubs, and nooses. 'Garbage' refers to unwanted trash.
+
+'At night' means flames come out of their mouths nightly. 'Causes their mouths to blaze' indicates that they food they eat causes their mouths to blaze. For some when they look at a stream it turns into pus with insects or embers.
+
+The beings are confused by the fruition of terrible karma.
+
+Hungry ghosts endure for 500 hundred ghost years, with each of their days being equal to 100 human months.
+
+When you contemplate these sufferings of the miserable realms think like this: "At present it is difficult to endure sitting for merely a day with my hands stuck in burning coals., or to remain naked for that long in a cave of ice during the winter winds, or go for a few days without food and drink, for for my body to be stung by a bee and the like. If even these are difficult to endure, how will i bear the sufferings of the hot hells, cold hells, and hungry ghost, or animals devouring eachother alive?"
+
+After you have assessed your current condition, meditate until your mind is filled with fear and dread. Simply knowing about this, without conditioning your mind to it, or only meditating on it for a little while, will not accomplish anything
+
+Meditation on suffering puts and end to lazinessa and generates joyous perseverence at accomplishing the path. It spurs you toward liberation and is the root cause for attaining it. 
+
+```
+Examine whether or not you have previously created the conditions for being bron in these miserable realms, whether or not you are currently creating them, whether or not you would consider creating them in the future. Since you will go there if you have created them, are creating them, or would consider creating them, think, "If I am born there, what would I do then; will I be able to do anything?" With you head pounding, or like a man struggling in the desert, consider that there will be absolutely nothing you can do, and develop as much fear and dread as possible. 
+
+-Neusurpa
+```
+
+**This is the key point. You currently have a good life for developing the path. Consequently, if you contemplate in this way, you will clear away previously accrued nonvirtuous karma and deter your future accumulations. Your prayers of fervent aspiration will redirect previously accrued virtues, causing them to increase. You will be able to enter many new avenues for engaging in virtuous actions. Therefore you will make your leisure and opportunity meaningful every day.**
+
+**If you do not contemplate these things now, when you fall into a miserable realm, you will not find a refuge to protect you from these terrors even though you seek one. At that time you will not have the intelligence to understand what you should adopt and what you should cast aside.**
+
