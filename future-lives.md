@@ -267,3 +267,52 @@ Examine whether or not you have previously created the conditions for being bron
 
 **If you do not contemplate these things now, when you fall into a miserable realm, you will not find a refuge to protect you from these terrors even though you seek one. At that time you will not have the intelligence to understand what you should adopt and what you should cast aside.**
 
+
+## Contemplating the suffering of the Animals
+
+Powerful animals kill weaker ones. Deities and humans exploit animals. Since others control them, animals have no independence, and are harmed, beatan, and killed.
+
+```
+In rebirth as an animal there are various sufferings --
+Being killed, bound, beaten, and so forth.
+Those who have cast away the virtues of peace
+Horribly eat eachother.
+
+Some die because of their pearls, fur, meat, or skin.
+Other powerless animals are put to work
+By being kicked, hit, whipped, jabbed, with an iron hook, or prodded
+
+-Nagarjuna Friendly Letter
+```
+Stupid and ignorant, these animals have no idea what to do or what not to do. They are born in places where suffering has no bounds.
+
+The wild animals are always in fear, they cannot eat a single mouthful without being on guard. 
+
+Hawks kill small birds, small birds kill insects, on and on.. constantly ammassing negative karma like this.
+
+Hunters use vicious weapons like snares, traps, gund, nets, etc. Some animals are killed for their horns, fur, skins, and other products of their body.
+
+It's a terrible affliction that the very body with which they are born is the reason for their being killed. 
+
+Cattle and sheep are exploited until they die. Once they are too old, they are sold off or killed by the owners themselves. Whatever the case, they are destined for the butcher and a natural death is unknown to them.
+
+Whenever you see animals like this, put yourself in their place and imagine that you are experiencing their suffering. Meditate with feirce compassion upon all those reborn as animals.
+
+In particuar if you have animals as your own treat them with kindness and love. Since all animals right down to the smalled insect, have feeling of pleasure and pain, and since they all have been our father and mothers, develop love and compassion towards them. 
+
+
+
+
+
+-----------
+
+No matter where in these lower realms beings are reborn, they experience all manners of intense and long lasting sufferings. Beings born there are stupid, ignorant, and without any idea of dharma, and can only create further causes for more lives in the lower realms, so wonce reborn there it is difficult to get out. 
+
+In our previous and present lives we have accumulated numerous actions that are certain to lead us to rebirth in those states. So we should apply ourselves with great sincerity to regretting our wrong actions in the past, confessing them and vowing to avoid them from now on.
+
+Thinking with great compassion of the beings who live in those worlds, dedicate to them the effects of all positive actions you have accumulated throughout the 3 times.
+
+Pray that they be liberated from those realms. "Now that I have met the dharma of the great vehicle, and have the chance to practice the path that brings true benefit both to myself and others, i shall practice the Dharma with courage, scorning all difficulties, and lead all those beings of the 3 lower realms to the Buddhafields." Having cultivated bodhichitta with that thought, pray to your teacher and dieties, asking for their help and support, thinking "May my teacher and the 3 jewels bless me so that I may achieve this aim!"  Dedicate the merit to benefit the beings, thus practicing the 3 methods.
+
+Although rebirth in the 3 lower realms naturally entails suffering, one might expect that the 3 higher realms would be happy and pleasant. But in fact even the higher realms there is no happiness.
+
