@@ -70,6 +70,17 @@ Good qualities of the Buddhas body, mind, speech, and enlightened activities.
 This entails recollection of the Buddha's auspicious signs and exemplary features. Recall them as they are taught in `Praise by Example`
 
 
+>If you reflect on the buddha's good qualities again and again, you will receive blessings commensurate with the strength of you faith and purity of your mind. Because you have gained certainty about them, you will go for refuge from the depths of your heart and train yourself in the precepts of refuge. Then, everything you do will become a practice of the teachings. 
+
+> -> Bodowa
+
+**Reflect again and again on the good qualities of the Buddha, and strive to attain certainty from the depths of your heart. Once you gain this, your reach the very core of the practice of going for refuge, you will gain certainty with respect to the teaching from which the Buddha arose, and the community that practices the teaching. Without this, there is no practice of going for refuge that transforms your mind, not to mention other paths.**
+
+# Precepts of Refuge
+
+proscriptive 
+
+
 
 
 
