@@ -368,10 +368,94 @@ First you have to understand the difference between Buddhist and non-buddhist te
 2. The destination of the teachings - The Conquerors teachings allow you to attain its goal of bliss through a joyful path. It stops the stream of cyclic existence, clears away the afflictions, does not mislead those who desire liberation, is completely virtuous and clears away faults.
 
 
+## Patrul Notes 
+
+### Faith
+
+Just as taking refuge opens the gateway to all teachings and practices, faith the gateway to taking refuge. As the first step in taking refuge, therefore, it is important to develop a lasting and stable faith. Faith itself if of 3 kinds:
+
+1. **Vivid Faith** - This is the faith that is inspired us us by thinking of the immense compassion of the Buddha's and great teachers. We may experience this after going to a great temple, or meeting a great teacher, etc.
+2. **Eager Faith** - Our eagerness to be free of the suffering of the lower realms when we hear them described; our eagerness to enjoy the happiness of the higher realms and of liberation when we hear what they are. Our eagerness to engage in positive actions when we hear their benefit; and avoid negative actions when we understand what harm they cause
+3. **Confident Faith** - the is the faith in the three jewels that arises from the depths of our hearts when we understand their extraordinary qualities and the power of their blessings. It is the total trust in the 3 jewels along that comes from the knowledge that they are the only unfailing refuge, always and in all of our circumstances, whether we are happy, sad, ill, in pain, living, or dead. 
+
+```
+The faith of total trust allows blessings to enter you.
+When the mind is free of doubt, whatever you wish can be achieved.
+
+- Guru Rinpoche
+```
+
+```
+In those who lack faith,
+Nothing positive will grow, 
+Just as from a burnt seed
+No green shoot will ever sprout.
+
+-Sutras
+```
+
+Of the seven noble riches faith is the most important. It is said:
+
+```
+The precious wheel of faith
+Rolls day and night along the road of virtue.
+```
+Faith is the most precious of all of our resources. It brings and inexhaustible supply of virtues, like a treasure. It carries us along the path of liberation like a pair of legs. 
+
+The compassion and blessings of the 3 jewels are inconceivable, but nevertheless their ability to reach into us depends entirely on our fate and devotion. If you have immense faith and devotion, the compassion and blessings you receive from your teacher will be immense. If moderate, it will be moderate, etc. If none there will be none. Even if you were to be a disciple of the Buddha, if you had no faith, it would be pointless. 
+
+```
+For all who think of him with faith
+The Buddha is there in front of them
+And will give empowerments and blessings
+```
+
+```
+For all men and women with faith in me, I Padmasambhava,
+Have never departed - I sleep by their door. 
+For me, there is no such thing as death;
+Before each person with faith, there is a Padmasambhava.
+
+-Guru Rinpoche
+```
 
 
+When one has confident faith, the Buddha's compassion can be present in anything.
 
 
+It is upon faith alone that actual realizations of the absolute truth, the natural state, depends. It is said in the sutras:
+
+```
+O Sariputra, absolute truth is only realized through faith!
+```
+
+As you develop faith quite beyond the commonplace, by its power the blessings of the teacher and of the three jewels will enter you. Then true realizations will arise and you will see the natural state as it really is. When that happens, you will feel an even more extraordinary and irreversible faith and confidence in your teacher and 3 jewels. In this way, faith and the realization of the natural state depend on each other. 
+
+Our capacity to receive the compassion and blessings of the teacher and the three jewels, therefore, depends entirely on devotion and faith. 
+
+Once a disciple yelled out to Jowo Atisha "Jowo, give me your blessing!". "Lax discple," Atisha responded ""give me you devotion!"
+
+So, absolute unwavering trust, arising from extraordinary faith and devotion, is indispensable. It opens the door for taking refuge. 
+
+### Motivation
+
+There are 3 different levels of motivation for taking reduce with this sort of faith
+
+1. **Refuge of lesser beings** - Fear of the sufferings of the 3 lower realms -- motivates us to take refuge simply with the idea of obtaining happiness of gods and men.
+2. **Refuge of middling beings** - The knowledge that in all realms of samsara - there is no freedom from suffering, so we take refuge in the 3 jewels just with the aim of attaining for ourselves the level of nirvana, peaceful and free from all of samsara's sufferings
+3. **The refuge of great beings** - the sight of all beings plunged in the great ocean of samaras infinite sufferings and undergoing an unimaginable variety of torments motivates us to take refuge with the idea of establishing them all in the unsurpassable and omniscient state of perfect and complete buddhahood.
+
+Out of these 3 levels, we should take the motivation of the third. Why strive to seek the happiness of the higher realms if it only lasts for a moment? The shravakas and pratrekabuzddh's find true happiness, but just for themselves, so what?.. how can they enjoy that when they see their mothers burning in the hells. 
+
+So, to take refuge in the three jewels with the wish that all beings may attain Buddhahood, is therefore, the way of the great beings, and the gateway to infinite merit. That is the way to, we should adopt.
+
+```
+As there are infinite kinds of beings
+The Wish to help them is infinite too.
+```
+
+
+### How to Take Refuge
 
 
 
