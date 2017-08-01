@@ -2,6 +2,34 @@
 
 ## The causes for going for refuge
 
+In general there are many causes, but for our purposes the following apply.
+
+You cannot remain in this life, and soon you will die, and after death you will have no control over where you are reborn, for you are under the control of your karma. 
+
+```
+Just as a flash of lightning in a dark cloud
+Momentarily illuminates the darkness of a black night,
+So too does there infrequently appear in the world, by a buddhas power,
+A few moments of intelligence to create virtue.
+
+Thus virtue is always weak,
+and sin is fiercely powerful
+
+-Shantideva
+```
+
+Since virtuous karma is so weak, and negative karma is so exceedingly powerful, if you contemplate how readily you fall into the miserable realms, you will be filled with fear and dread, and will resolve to seek a refuge. 
+
+```
+Adrift in the bottomless ocean of cyclic existence,
+Devoured by fierce sea monsters --
+Attached and the like --
+To whom should I go for refuge today?
+
+-Dignaga
+```
+
+
 In brief, the causes for going for refuge are twofold: 
 
 1. your fear of the miserable realms and the like
@@ -52,7 +80,7 @@ There are 4 aspects to going for refuge:
 3. Through commitment
 4. By refusing to acknowledge other refuges
 
-#### Going for refuge by knowing the good qualities
+#### 1. Going for refuge by knowing the good qualities
 
 Going for refuge in this way requires recalling the good qualities of the refuge... there are 3 subdivisions
 
@@ -293,15 +321,51 @@ You will also make prayers aspiring to enlightenment.
 
 
 
+##### Good qualities of the Teachings 
+
+Once you have made respect for the Buddha your primary cause, you should then recollect the teaching jewel as follows **"The Buddha possesses limitless good qualities, all of which arose from meditating on and realizing both the verbal teachings and the teachings as they are put into practice. That is, he actualized the true cessations, thereby eliminating faults, and meditated on the true paths, thereby giving rise to good qualities"**
 
 
 
+```
+These bhagavan buddhas possess infinite and limitless good qualities. Such qualities are born from the teaching, from the proper practice of the teaching. The teaching creates and governs them. They arise from the teaching and within the scope of the teaching. They depend upon the teaching, and the teaching produces them.
+
+- The Compendium of the Teachings
 
 
+##### Good qualities of the Community 
+
+Chief among the members of the community or those persons who are noble beings. **Think of them in light of their mindfulness of the good qualities of the teaching and their proper practice of it.** 
+
+```
+Think, "The community teaches the teachings, practices it, and reflects on it. It is the teachings sphere. It upholds the teaching, entrusts itself to the teaching, worships the teaching, and conducts itself according to the teaching. It has the teaching as its sphere of activity, and is the most excellent practitioner of the teaching. It is naturally honest and pure. It is endowed with the quality of compassions, and has great compassion. It always has solitude as its field of activity, and is always absorbed in the teaching, and always practices virtue"
+
+- Compendium of the Teachings
+```
+
+#### 2. Going for Refuge by knowing the distinctions
+
+According to the Compendium of Determinations, you go for refuge after understanding the distinctions among the 3 jewels.
+
+1. **Distinction Bases on their defining Characteristics** - The Buddha jewels has the characteristics of full, perfect enlightenment. The teaching jewel has the characteristics of arising from the buddha jewel. The community jewel has the characteristic of correct practice by means of personal instructions.
+2. **Distinction Bases on their activities** - Buddha gives sermons. Teaching focuses on the eradication of afflictions and suffering. Community has the activity of fostering enthusiasm.
+3. **Distinction Bases on devotion** - You should appreciate the buddha as the one to venerate and serve. You should appreciate the teaching as that which is to be realized. You should appreciate those whom you should associate because they have attributes that are similar to your own. 
+4. **Their distinction based on practice** - You should worship and serve the buddha. You should become familiar with the teaching by applying yourself to yoga. You should cultivate a relationship with the community through sharing the teaching and material goods
+5. **The distinction based on recollection** - You should recollect the good qualities of the three jewels by reciting "Thus the Bhagavan...", etc.
+6. **The distinction based on how they increase merit** - Supreme merit is increased through the influence of either persons or the teaching. The Buddha and the community are instances of the former. Also, you can increase merit in dependence on either a single person or many persons. The community is a case of the later, because it requires for monks.
 
 
+#### 3. Going for Refuge Through Commitment
+
+Going for refuge through commitment means upholding the Buddha as the teacher of refuge, the teaching - nirvana -, as the actual refuge, and the community as those who assist us to attain refuge.
 
 
+#### 4. Going for Refuge Through Refusing to Acknowledge other refuges
+
+First you have to understand the difference between Buddhist and non-buddhist teachers, teachings, and disciples, for then you will uphold only the 3 jewels as your refuge, and refuse teachers, teachings, and disciples that do not accord with them.
+
+1. The distinction of the teacher - The Buddha is without fault and has perfected good qualities, but the teachers of other religions are the opposite of that
+2. The destination of the teachings - The Conquerors teachings allow you to attain its goal of bliss through a joyful path. It stops the stream of cyclic existence, clears away the afflictions, does not mislead those who desire liberation, is completely virtuous and clears away faults.
 
 
 
