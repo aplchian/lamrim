@@ -433,7 +433,7 @@ As you develop faith quite beyond the commonplace, by its power the blessings of
 
 Our capacity to receive the compassion and blessings of the teacher and the three jewels, therefore, depends entirely on devotion and faith. 
 
-Once a disciple yelled out to Jowo Atisha "Jowo, give me your blessing!". "Lax discple," Atisha responded ""give me you devotion!"
+Once a disciple yelled out to Jowo Atisha "Jowo, give me your blessing!". "Lax disciple," Atisha responded ""give me you devotion!"
 
 So, absolute unwavering trust, arising from extraordinary faith and devotion, is indispensable. It opens the door for taking refuge. 
 
@@ -445,7 +445,7 @@ There are 3 different levels of motivation for taking reduce with this sort of f
 2. **Refuge of middling beings** - The knowledge that in all realms of samsara - there is no freedom from suffering, so we take refuge in the 3 jewels just with the aim of attaining for ourselves the level of nirvana, peaceful and free from all of samsara's sufferings
 3. **The refuge of great beings** - the sight of all beings plunged in the great ocean of samaras infinite sufferings and undergoing an unimaginable variety of torments motivates us to take refuge with the idea of establishing them all in the unsurpassable and omniscient state of perfect and complete buddhahood.
 
-Out of these 3 levels, we should take the motivation of the third. Why strive to seek the happiness of the higher realms if it only lasts for a moment? The shravakas and pratrekabuzddh's find true happiness, but just for themselves, so what?.. how can they enjoy that when they see their mothers burning in the hells. 
+Out of these 3 levels, we should take the motivation of the third. Why strive to seek the happiness of the higher realms if it only lasts for a moment? The shravakas and pratrekabuddha's find true happiness, but just for themselves, so what?.. how can they enjoy that when they see their mothers burning in the hells. 
 
 So, to take refuge in the three jewels with the wish that all beings may attain Buddhahood, is therefore, the way of the great beings, and the gateway to infinite merit. That is the way to, we should adopt.
 
