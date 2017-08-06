@@ -105,14 +105,61 @@ The Sauntrantika scholars are saying that words are by definition linguistic sig
 
 #### Real and Unreal Existent Objects
 
-pg. 60
+We can further refine our definition of existent objects. **Whether an existent phenomena is considered to be real or unreal depends on whether it can perform a function.**
+
+Things that are Real are "real", because they can perform functions and bring about "real" results, whereas unreal things are "unreal" because they can't perform functions. 
+
+```
+Because all [real] things essentially abide in their own essence, 
+they partake in the differentiation between [themselves and other] similar and dissimilar things.
+
+-Dharmakirti 'Commentary on Valid Cognition'
+```
+
+from this quote we can see that real specifically characterized phenomena can be determined by three criteria
+
+1. **place-specific** - they occupy a definite, special location. Nothing else can occupy that same space, like the table in front of me. Conceptual images are different. i can imagine the same location, but it occupies not actual location; it is constructed solely by mind. As such, it is an unreal thing, and generally characterized in this instance because it cannot occupy a definite specific location.
+2. **cause-specific** - real specifically characterized phenomena come in to existence due to specific causes and conditions, unlike generally characterized phenomena which are conceptually constructed. The mind imagining an image of course has causes and conditions, but they are not the specific causes and conditions that brought the object into existence.
+3. **time-specific** - they are locked into a specific time frame. Coming into and going out of existence at specific moments due to causes and conditions. Conceptually constructed objects on the other hand do not have that kind of clearly determined time and duration.
 
 
+This is the meaning of the words "abide in their own essence" in the quotation.  
+A specifically characterized phenomena abides in its own essence in the sense that it is not mixed with other things, either in their location, or causes, or time frame.
+
+For Dharmakirti, an object that conforms to these 3 criteria is real. It is also an object of perception. 
+
+A *thing* has additional properties aswell. Because of having these 3 characteristics and the ability to perform functions, a thing therefore possesses its own essence and is impermanent.
+
+Because a *nonthing* does not possess these three features, it is unreal, it cannot function (hence, is noneffective), and is permanent.
 
 
+**This is an interesting aspect of the Sautrantikas notion of generally characterized phenomena that separates them from the Vaibashikas**. A generally characterized object is an imputation(as we have seen), and that, say the Sautrantikas means it is permanent. This conflicts with Vaibashikas idea of permanence, where there are only 3 examples of permanent phenomena: non-analytical cessation, analytical cessation, and space. According to the Sautrantika view there are countless permanent phenomena.  **All concepts, which by definition do not perform a function, are permanent.**
+
+Concepts include inferential valid cognitions as well as all the other non direct minds, many of which are quite deluded. 
+
+Deluded or not, there is *always* some degree of distortion of objects that appear to the conceptual mind; such objects may seem real, but they are not. for ex. if i see the buddha statue on my shrine, and then think of it when i don't see it, that image that appears may seem vivid and real, but it is not.. it is composed of distillations of all the images of the statue I have stored in my mind. So it is a generally characterized phenomena.
+
+**Finally, a *thing*, which has all these aspects, is also an ultimate truth, whereas a nothing is a conventional truth.**
+
+to sum up the existent objects according to the Sautrantika school
+
+| Things                               | NonThings                             |
+|--------------------------------------|---------------------------------------|
+| real                                 | unreal                                |
+| functioning                          | nonfunctioning                        |
+| effective                            | noneffective                          |
+| specifically characterized phenomena | generally characterized phenomena     |
+| objects of direct valid cognition    | objects of conceptual valid cognition |
+| ultimate truths                      | conventional truths                   |
 
 
+- Something is real because it functions
+- something is specifically characterized because it is an object of direct valid cognition
+- something is effective because it functions and is therefore a specifically characterized phenomena
+
+**We can rove around this list seeing the logical connections between the various terms and in this way, clarify the distinctions between ultimate truths and conventional truths in the Sautrantika**
 
 
+#### The Relationship of Mind and Object
 
 
