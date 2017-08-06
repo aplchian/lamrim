@@ -84,8 +84,8 @@ To the kinds of karma you do.
 
 There are 6 general precepts:
 
-1. **By recalling the distinctions and good qualities of the 3 jewels, go for refuge again and again**- as previously explained, you should repeatedly keep in mind the difference between non-buddhist and buddhists, the distinctions among the 3 jewels, and the good qualities of the 3 jewels.
-2. **By recalling the kindness of the 3 jewels, strive to worship them constantly and offer the first portion of your food and drink.** - 
+** * 1.)By recalling the distinctions and good qualities of the 3 jewels, go for refuge again and again**- as previously explained, you should repeatedly keep in mind the difference between non-buddhist and buddhists, the distinctions among the 3 jewels, and the good qualities of the 3 jewels.  
+** * 2.)By recalling the kindness of the 3 jewels, strive to worship them constantly and offer the first portion of your food and drink.** - 
 
 ```
 Though they obtain food due to the buddha's merit,
@@ -122,9 +122,216 @@ With regards to offerings there are:
 To make these 10 types of offering to the 3 jewels is to make a complete offering.
 
 
-... the 6 attitudes, pg 199
+#### attitudes of offering
+
+When you make these 10 types of offerings, there are 6 attitudes that will render immeasurable the result of even small offering to any of the three jewels. You should make offerings with the thoughts that:
+
+1. there is no higher field of good qualities
+2. there is no higher benefactor
+3. he is the best of all beings
+4. he is extremely rare, like the udumvara flower
+5. since only one buddha appears in a universe of three billion word systems, he is the only one
+6. he is the foundation of all mundane and supra mundane good
+
+These 10 types and 6 attitudes are from *the bodhisattva levels*
+
+You should always make the best offerings you can, make especially good offerings on holiday and auspicious days. 
+
+Since you constantly have to eat and drink, always offer the first portion of your food and drink.
+
+If you do this without fail, you will easily amass a large accumulation of merit. Thus, from the bottom of your heart, always offer the first portion of what you consume from the bottom of your heart, even water.
+
+```
+No field of merit like you
+Exists in the three worlds--
+You are the supreme recipients of gifts,
+The pure one who makes a row of monks pure.
+
+Just as the height and breadth
+Of the firmament have no limit,
+There is no limit to the fruition
+Of helping or harming you.
+
+-Praise in Honor of One Worthy of Honor
+```
+
+Since our practice is such that we cannot even think of a supreme field of merit as we would an ordinary field, we should always strive to make offerings to the three jewels. 
+
+**By doing so our mind's power with respect to the stages of the path will increase as a result of the strength of the roots of virtue grown in this excellent field of merit. Therefore, when our mind's power is so weak that we cannot retain the words we study, understand the meaning when we reflect, or gain knowledge when we meditate, we should rely on the power of the field of merit. This is a personal instruction.**
+
+```
+By depending on you Bhagavad,
+My mind, though weak, has broadened
+Like a river in the rainy season,
+Attaining great skill in composing poetry.
+
+-Sri Matreceta
+```
+
+**Offerings are not determined by the material objects offered, but you faith**
+
+Thus if you do not have materials, then water, mandalas, etc will suffice if you have faith.
 
 
+** * 3.) Establish other living beings in this practice by considering them with compassion**
+
+This means that you should use all available means to daringly establish other living beings in the practice of going for refuge
+
+** * 4.) Whatever activity you engage in, and whatever your purpose, make offerings and supplications to the three jewels, forsaking any worldly benefit**
+
+Whatever activity you engage in, and whatever your purpose, rely on and do what accords with the three jewels, such as making offerings to them. But never do that which does not accord with the three jewels, such as relying on another religion. Alway entrust yourself to the three jewels.
 
 
+** * 5.) After you have understood the benefits, for for refuge 3 times in the day and 3 times at night.**
 
+The benefits of going for refuge are first explained according to the *Comendium of Determinations* and then according to the personal instructions.
+
+**Benefit as they appear in the Compendium of Determinations**
+
+These are explained in 2 sets of four.
+
+**First Set of Four**
+
+1) You will Obtain Vast Merit
+
+```
+The Bhagavan Buddha is inconceivable.
+The sublime teaching is also inconceivable.
+The noble community is inconceivable.
+For those having faith in the conceivable 
+The fruition is also inconceivable.
+
+-The Immortal Drumbeat Dhahran
+```
+```
+If there merit of going for refuge took form,
+Even these three realms would be too small to contain it--
+A cupped hand cannot measure
+The great ocean, the storehouse of water.
+
+-Aryasura
+```
+
+2) You will Obtain both joy and supreme joy
+
+```
+Those who, recalling the Buddha
+During the day and night,
+Go for refuge to him,
+Gain the advantage of being human
+
+-Collection of Indicative Verse
+```
+You should apply this to the other 2 jewels swell. Those the one who relies on these 3 refuges grows more joyful with the thought "I have really gotten something worth getting!"
+
+
+3) You will Obtain concentration and 4) you will obtain purity
+
+You will be liberated through training in concentration and wisdom
+
+
+**The Second Set of Four**
+
+1) You will have great protection
+
+This will be explained later
+
+2) You will reduce, extinguish, and totally annihilate all obscurations derived from incorrect belief
+
+You will reduce and clear away all bad karma accumulated on account of your believing in bad teachers, teachings, and friends and upholding them as refuges
+
+3) You are counted among excellent persons, who genuinely accomplish the sublime
+
+You are included among excellent persons
+
+4) You delight and receive the approval of your teachers and religious companions, and of the deities who take joy in the teaching
+
+You please your teachers and religious companions. The dieties think "The person named such and such, who, like us, has gone for refuge, will die and be reborn here. Because he or she has gone for refuge and has become stable in it, she or she will be our companion!"
+
+**Benefit as they appear in the Personal Instructions**
+
+There are 8 in number.
+
+1) You are included among the buddhists
+
+The Elder and Santipa distinguish them according to the refuges they seek, and you should count as Buddhists those who have obtained and not forsaken their refuge. Thus, to initially be included among the Buddhists you must uphold the three jewels as your teacher and so forth from the depths of your heart. Without this, you are not included month buddhist, no matter what virtue you create.
+
+2) You become worth to uphold vows
+
+```
+O lay practitioners, going for refuge to the 3 jewels is the basis of the 8 vows
+
+-Chandrakirti
+```
+
+**The meaning is that, you make your aspiration for nirvana by going for refuge, and that your vows arise from this.**
+
+3) You reduce and eliminate previously accumulated bad karma
+
+Just as the god who was about to be reborn as a pig  avoided such a birth by going for refuge, so too do you climate the conditions for rebirth in a miserable realm by going for refuge. 
+
+```
+Those who go for refuge to the Buddha
+Do not go to miserable realms.
+After giving up human form,
+They assume the bodies of dieties
+```
+
+The same applies to going for refuge to the other 2. Karma is reduced and eliminates
+
+4) You will accumulate mass merit
+
+This has been explained already
+
+5) You will not fall into miserable realms
+
+^^
+
+6) You will not be thwarted by human or non human hindrances
+
+7) You will accomplish everything you wish
+
+If, before undertaking a religious activity, you make offerings to the 3 jewels, go for refuge, and then pray to succeed, you will easily accomplish it
+
+8) You will quickly achieve buddhahood
+
+```
+Through faith you overcome lack of leisure
+
+- The Sutra Requested By a Lion
+```
+
+Thus, one who obtains a special kind of leisure, encounters the refuge, and rains in the special path will achieve buddhahood without delay.
+
+--
+
+Each day recall the benefits in the manner above. Then go for refuge 3 times during the day and 3 times at night
+
+** * 6.) Maintain your refuge and do not forsake the three jewels, even in jest of if it costs you your life**
+
+Inevitably you will lose your body, life, and resources. But if you forsake the 3 jewels for the sake of these, you will suffer continually throughout many lives. Thus, you should repeatedly vow that whatever happens, you will not forsake your refuge --- not even mouthing the words in jest.
+
+----
+How contravening these precepts causes weakening and forsaking your refuge is explained as follows.
+
+An actual forsaking of your refuge means the you have contravened the precept not to forsake refuge any for the sake of your life. 
+
+If you do not forsake the three jewels, but also contravene the precept not to acknowledge
+the refuges... since you are not fully entrusting yourself to the refuge, you have forsaken it. If these 2 do not occur, other contraventions of the precepts are just contraventions, but not the causes of forsaking refuge. 
+
+---
+
+This being the case, going for refuge is the main door the buddhas teaching. If you go for refuge in a way that transcends mere words, you will not be defeated by outer and inner obstacles, for you are relying upon the highest power. Since good qualities develop easily and deteriorate with difficulty, they can only continue to increase. 
+
+Therefore it is extremely important, as previously explained, to uphold the refuges by means of fearing suffering, recalling the good qualities of the refuges, and so forth, and to make an effort to not transgress the precepts.
+
+How does the refuge protect your from the fear of falling to lower realms after death?
+
+```
+I, the Tathagata, the Teacher,
+Reveal to you,
+The path that stops the pain of existence;
+You must follow it.
+```
+
+Thus, the Buddha is the one who teaches refuge, and the community assists you in accomplishing refuge, but the real refuge is the jewel of the teaching, because once you have attained it, you are liberated from fear. With regard to this, the ultimate teaching jewel is defined as being the special fulfillment of the gradual increase of 2 things -- the beginning practitioners eliminations of a mere portion of faults, and his or her knowledge that brings about a mere portion of good qualities. This is not something that appears adventitiously(formed accidentally).
