@@ -162,4 +162,126 @@ to sum up the existent objects according to the Sautrantika school
 
 #### The Relationship of Mind and Object
 
+The Sautrantika school asserts that real things exist really, independent of the mind. This will be refuted by the Chittamatrins, so its useful to examine the Sautrantika assertion about how something is apprehended by consciousness. 
+
+**Our commonsense view of objects is that they exist out there, in and of themselves, and that a mind separate from them, apprehends them. This is the Sautrantika view.**
+
+External things exist independent of the mind; not only that, they act as a cause for consciousness to arise. 
+
+By definition, the mind is clear and knowing. In order to know, it must know *something*, so when an eye consciousness sees a flower, the flower is one of the main conditions for a perception of the flower to arise.
+
+There are three conditions needed for a consciousness to operate. 
+
+1. **the object condition** - the object of the consciousness
+2. **the empowering condition** - the sense organ that operates to cause a consciousness to arise
+3. **the preceding condition** - the preceding moment of consciousness that allows the next moment of consciousness to arise
+
+The main point in this context is the *object condition*. For me to see a flower, there must be a flower there. It is a real, and independent object that is a flower sitting there on the table, whether my mind apprehends it or not. 
+
+When I look at the flower, my eye consciousness  -- and unmistaken direct perception - apprehends a flower, and therefore, the flower is the object condition.
+
+Since this is a causal relationship, it also has a temporal aspect, in that the flower is the cause and as such precedes the mind that apprehends it, which is the result.
+
+#### The Reality of Material Objects
+
+The Vaibashika schools, artless particles exist ultimately, but so to do our aggregates, whereas the person, or collection of aggregates, does not.
+
+
+The Sautrantika scholars wanted to refine this, so they designated different sizes of phenomena in order to establish the dividing line between what exists ultimately and what is mere convention. The four levels they hypothesized are:
+
+1. substantial atoms - partless particles - ultimate truths 
+2. larger molecules - groups of atoms 
+3. collections - when these molecules become larger and become apprehensible - shape and color visible to the eye, smell perceptible to the nose
+4. gross objects - When a collection forms an entire object, that is designated as a *gross object* - conventional truths
+
+The question of at what point does something become a gross object is debated, but becomes relevant when we try to separate conventional truth from ultimate truth. 
+
+ultimate truth - object of direct perception, is substantial, and is able to perform a function
+conventional truth - imputation that is insubstantial, unable to perform a function
+
+To the Sautrantika's, a person is a conventional truth, because of being imputed on the aggregates and unable to perform a function. It is the aggregates of body and mind that perform the function.
+
+At the other extreme, are the substantial atoms reals? Sautrantika's would say they are. 
+
+Remember, these substantial particles were inferred, because they believed there must be something that is real and that is the base upon which all else is built. This is the reason why these substantial atoms were inferred, in a way similar to how scientists 'discovered' quarks and neurons. 
+
+Though these 2 schools share many aspects, they are not identical in either their emphasis or their assertions. 
+
+Even the idea of artless particles, there is a difference. The Sautrantika's assert that these artless particles are comprised of the 4 elements alone - earth, wind, fire, and air --  and do not include the sense objects of visual form, tangibility, smell, and taste asserted by the Vaibashikas.
+
+So what is *real* according to this school? There are 3 views on this.
+
+1. A **real object never changes and it not imputed by a conceptual consciousness.** If something is merely imputed by a conceptual consciousness Sautrantika's say it is unreal. That seems to suggest that only substantial atoms are real. 
+2. **Whatever is perceived by a sense consciousness is real, whereas anything else is not. Therefore, colors and shapes, tastes, tactile data, and so on are real, but the objects up from those things are imputed on them and so are not real.**
+3. commonsense objects - houses, tables, pens, are real because they are not constructed by a conceptual consciousness
+
+These are 3 slightly different views helped by Sautrantika masters. 
+
+For the gelugpas take the third stance when looking at this school. According to this argument, commonsense objects are real, because they are objects of direct perceptions and are therefor free of constructions and interpretations. The eyes see a book, and it is as simple as that, of course there is a real 'book'. The book is a collection parts, shape, color, tangibility, and so on-- and each part of that collection is real, so the whole must be real.
+
+But for the counter argument, for the book to be real, it must be intrinsic and not rely on anything... whereas it relies on its parts and a label. It would need to be intrinsically books.
+
+Reality is not a concise thing, If something is real it must stand by itself, and we have a lot of discussion on where the dividing line is between clearly 'standing by itself' and blurring into a mere projection.
+
+### Ultimate Truth and Conventional Truth
+
+#### Ultimate Truth in Sautrantika
+
+the basic definition of ultimate truth in Sautrantika is 
+
+**A phenomena that exists from it's own side, without being imputed by a conceptual consciousness**
+
+If you have studied Madhyamaka before, leave what you have heard on the shelf... these lower schools are much more basic, and for them, some things do exist from their own side. 
+
+The quest is to establish the boundary between intrinsic and conceptual, so "without being imputed by a conceptual consciousness" tells us that this definition is point to the intrinsic, and inherent. If something is imputed by a conceptual consciousness, we take it to mean that it depends on something else, whereas an ultimate truth does not.
+
+Does a computer exist from its own side without being imputed by a conceptual consciousness? The Sautrantika's say No. The computer is a collection of screen, keyboard, metal, or at the deeper level of artless particles. Therefore it is imputed by a conceptual consciousness in that the mind labels the collection of parts as a computer. The computer-ness does no come from the side of the computer at all. Also the concept we see as a computer cannot perform a function. It is the actually existing parts that do that. For all these reasons, the computer is a conventional truth. 
+
+this ties in with the Sautrantika's definition of a conventional truth:
+
+**a phenomenon that is established as a mere imputation by a conceptual consciousness**
+
+Another explanation of ultimate truth appears in the 3rd chapter of dharmakirti's commentary:
+
+> Those phenomena which are able to perform a function are here said to be ultimately existent. Others are said to be conventionally existent. Those two types of phenomena are specifically and generally characterized
+
+The have already seen that things that come into existent through causes and conditions are able to perform functions and to produce results; such phenomena are said to have substantial reality or substance. *Substance* refers to a momentary thing or event that is causally effective in any particular time or circumstance. Those things are ultimate truths because they are able to perform functions to bring effects.
+
+'Others' refers to phenomena that are unable to perform functions. These are called *fictional non-effective-phenomena*
+
+**We can see that ultimate truth and functioning phenomena are synonymous. As well as conventional and non-functioning.** This ties in also with the term *thing* as something that can perform a function and is an ultimate truth.
+
+#### Conventional Truth in Sautrantika
+
+
+Dharmakirti says a generally characterized phenomena is a concealer truth because the conceptual mind apprehending it obscured the unique entity of the specifically characterized phenomena. 
+
+**The term "concealer-truth" gives a nice flavor, to the definition, because, although it is a conventionally or relatively true, such a phenomenon cancels the ultimate nature of reality from the mind. The ultimate truth of that object is unique, specifically characterized object, The mind is obscured from seeing it as it really is because it is mixed with the conceptualized image of the object.**
+
+Take for example the glass. It is nearly impossible for us to apprehend them without any further overlay. **Whether that overlay is the concept 'glass', or 'empty glass', or 'cup', etc. Whatever concept we place on top of the actual object, obscures the object in some way... generalizing a specific.**
+
+The Sautrantika's cite certain phenomena that can be fully expressed by language.. 'space', and 'selflessness'. *Space* is the mere absence of obstruction, nothing more. Because it is nothing more or less than that, language can express it. So these are **conventional truths.** This is different than the Vaibasheka's who say these are ultimate truths. 
+
+For ex. I have 2 different book of different sizes.. even just thinking about them we can attribute differences to them, but we can also attribute a similarity - their 'book-ness'. **This generic or universal image is cited as a conventional truth by this school.**
+
+---
+
+Like all Buddhist Philosophical schools, the Sautrantika is to show the practitioner ways of developing the mind so that a correct understanding of reality can be reached and difficulties and sufferings can be overcome. 
+
+Their aim is liberation, not enlightenment, so they speak of selflessness of persons, not phenomena. Nevertheless, there are some very important ideas presented here that are useful for even those striving for perfect enlightenment. 
+
+It is essential to understand the epistemology and login the Sautrantika if we are to understand the mind. Although we feel that why they say about ultimate and conventional truths do not go far enough, if we really look at it we haven't even yet reached their level of understanding in the way we live our lives. 
+
+In particular, understanding their ideas of ultimate truth -- phenomena that are able to perform a function and conventional truth -- phenomena that unable to perform a function but nevertheless have a parallel to real things -- helps us not jump to immediate judgements and act upon them precipitously(without consideration).
+
+**We are searching for sense pleasures all the time, and our need is so great that it is very easy to confuse the overlay that our desire projects onto an object or event with the actual thing itself. By seeing how so much of our perceived world is, in fact, imputed by our deluded minds, we can be more skillful about where we put our energy, and concentrate more on 'real' things, seeing the danger inherent within unreal expectations and equally unreal memories.**
+
+Studying Sautrantika views can really help us see the extent of our presumptions and so become more openminded.
+
+In the context of tenets, understanding the Sautrantika is especially helpful for understanding the later Madhyamkia views, because many of the arguments leveled by the Madhyamikas address Sautrantika positions specifically. If you understand the Sautrantika position, that will make your grasp of the highest view more profound.
+
+
+
+
+
 
