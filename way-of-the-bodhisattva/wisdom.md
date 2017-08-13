@@ -66,7 +66,7 @@ These 2 are, on their respective levels are indisputable, and thus are regarded 
 
 Its incorrect to say that they are distinct on the ultimate level or that they are one and the same on the relative level. It is said in the Sandhinirmochanasutra that these 2 truths should be understood as neither identical, nor distinct.
 
-The way of beings of things, their ultimate truth - is free from the extremes of both existence and non-existence -- it is not the object of ordinary mind. The intellect that things do exist and do not exist and the language that speaks in these terms are said to be 'relative' and not ultimate. Ultimate truth transcends the ordinary mind, and cannot be expressed in though or word. By contrast, the relative truth is defined as the deluded mind and its object.
+The way of beings of things, their ultimate truth - is free from the extremes of both existence and non-existence -- it is not the object of ordinary mind. The intellect that thinks things do exist and do not exist and the language that speaks in these terms are said to be 'relative' and not ultimate. Ultimate truth transcends the ordinary mind, and cannot be expressed in though or word. By contrast, the relative truth is defined as the deluded mind and its object.
 
 From the view of the ultimate, the 2 are not cut off and separate from each other. "form is emptiness, emptiness is form. emptiness is no other than form, and form is no other than emptiness." 
 
