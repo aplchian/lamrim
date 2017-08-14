@@ -129,4 +129,47 @@ Beings surely feel its effects
 Basis of Discipline
 ```
 
+# The Varieties of Karma
+
+The presentation of the distinctions among the varieties of karma has 2 parts:
+
+1. The principal teaching of the ten paths of action
+2. The determination of the effects of actions
+
+## 1. The principal teaching of the ten paths of action
+
+Q: So, not that i understand the general characteristics of karma, what sorts of karma and effects should i initially develop certainty? Which should I adopt, and which should I cast aside?
+
+A: In general, you can conclude that there are 3 ways to engage in good and bad conduct -- physically, verbally, and mentally.
+
+Although not all virtues and non virtues are contained in these 10, he summarized the main points and taught the 10 most coarse/obvious. He taught that the extremely great foundation for a misdeed are the 10 paths or non virtuous action and 10 paths of virtue is the 10 positive actions.
+
+```
+Systemizing the most obvious among them,
+The Buddha said that the paths of action--
+Virtuous and non virtuous-- are ten
+
+-The Treasury of Knowledge
+```
+
+```
+If you practice the 3 paths of actions--
+Guarding your speech, being restrained mentally,
+And not committing physical nonvirtues--
+You will achieve the path taught by the Sage
+
+- Exegesis of Discipline
+```
+
+Knowing the 10 paths of non virtuous actions and their effects, restraining yourself from even being motivated to commit them. Then practicing the actions of virtue in which you body, speech, or mind are not at all mixed with the paths of non virtuous action.
+
+This practice is indispensable as the basis for all three vehicles, as well as for the accomplishment of the 2 aims of beings. Hence, the Buddha repeatedly praised it from many perspectives.
+
+```
+These paths of the 10 virtuous actions are the sources of divine human birth, of attaining the practices of learners and those with no more to learn, of the enlightenment of pratyekabuddhas, of al the bodhisattva deeds, and of all the qualities of buddha.
+
+-Quests of the Naga Kings of the Ocean 
+```
+
+Repeatedly guard your ethical discipline by maintaining a sense of restraint. There are some no restraint even with regard to a single practice of ethical discipline that say 'I am a Mahayana Practitioner'. This is very dishonorable.
 
