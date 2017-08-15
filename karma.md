@@ -138,7 +138,7 @@ The presentation of the distinctions among the varieties of karma has 2 parts:
 
 ## 1. The principal teaching of the ten paths of action
 
-Q: So, not that i understand the general characteristics of karma, what sorts of karma and effects should i initially develop certainty? Which should I adopt, and which should I cast aside?
+Q: So, now that i understand the general characteristics of karma, what sorts of karma and effects should i initially develop certainty? Which should I adopt, and which should I cast aside?
 
 A: In general, you can conclude that there are 3 ways to engage in good and bad conduct -- physically, verbally, and mentally.
 
@@ -166,10 +166,121 @@ Knowing the 10 paths of non virtuous actions and their effects, restraining your
 This practice is indispensable as the basis for all three vehicles, as well as for the accomplishment of the 2 aims of beings. Hence, the Buddha repeatedly praised it from many perspectives.
 
 ```
-These paths of the 10 virtuous actions are the sources of divine human birth, of attaining the practices of learners and those with no more to learn, of the enlightenment of pratyekabuddhas, of al the bodhisattva deeds, and of all the qualities of buddha.
+These paths of the 10 virtuous actions are the sources of divine human birth, of attaining the practices of learners and those with no more to learn, of the enlightenment of pratyekabuddhas, of all the bodhisattva deeds, and of all the qualities of buddha.
 
 -Quests of the Naga Kings of the Ocean 
 ```
 
-Repeatedly guard your ethical discipline by maintaining a sense of restraint. There are some no restraint even with regard to a single practice of ethical discipline that say 'I am a Mahayana Practitioner'. This is very dishonorable.
+Repeatedly guard your ethical discipline by maintaining a sense of restraint. There are some who have no restraint even with regard to a single practice of ethical discipline that say 'I am a Mahayana Practitioner'. This is very dishonorable.
 
+
+## 2. The determination of the effects of actions
+
+There are 3 parts to the determination of the effects of actions:
+
+1. Nonvirtuous actions and their effects
+2. Virtuous actions and their effects
+3. A presentation of other classifications of Karma
+
+### 1. Nonvirtuous actions and their effects
+
+These are explained in three parts:
+
+1. The actual paths of non virtuous actions
+2. Distinctions of weight
+3. An exposition of the effects
+
+
+#### 1. The actual paths of non virtuous actions
+
+**1. Killing**
+
+What is killing? This can be taught in 4 categories --  basis, attitude, performance, and culmination. 
+
+- **basis** - killing a being who is alive
+- **attitude** - concerning the 3 aspects of attitude -- perception, motivation, and affliction .. perception has 4 types 2 of which are accurate which are perceiving a living being to be a living being and perceiving a non living being to be a non living being. If I want to kill a person named Tod but accidentally kill Tim, there is no actual sin. So an action of killing required an accurate perception. If the person at the time of killing just wants to kill and doesn't care who, and accurate perception is not necessary. This is the case for any of the 9 non virtuous actions.
+- The **affliction** is any of the 3 mental poisons.
+- The **motivations** is the desire to kill.
+- For the **performance** it makes do difference if they do it themselves or get someone else to do it. The nature of the performance is killing with a weapon, poison, etc.
+- The **culmination** is the death of another on account of the performance, either at that point in time, or another point in time.
+
+If the killer dies at the same time or after the victim, There is no actual infraction, since the killer has then assumed another life.
+
+**2. Stealing**
+
+- **basis** - anything owned by another
+- **perception, affliction** - same as above
+- **motivation** - desire to take take the thing from another person even though he or she has not given it to you
+- **performance** - the performer is same as before, the nature is either robbing by force of theft by subterfuge(deceit) -- they are equivalent. Whether people engage in deceit about debts and trusts, or take what is not given by other deceitful means, and whether they act for the sake of their own interests or other interests, or to harm another -- these are all equally considered stealing.
+- **culmination** - "moving it to another location", which is just an illustration. in the case of things such as fields you can't move them. In such a case, the culmination is thinking you have acquired it. If  you causes another person to steal, it is enough for them to have that thought.
+
+**3. Sexual Misconduct**
+
+- **base** - There are 4 possible basses of sexual misconduct - (1) a person with which you should not have intercourse (2) inappropriate body parts (3) inappropriate places (4) inappropriate times
+- **perception** - it is the same whether the perception is accurate or not accurate
+- **affliction** - 3 mental poisons
+- **motivation** - desire to copulate
+- **culmination** - sexual union of 2 parts
+
+
+**4. Lying**
+
+- **base** - that seen, that heard, that distinguished, and that cognized, as well as the 4 opposite [that not seen, etc] .. When someone else, the recipient -- comprehends the meaning of the lie
+- **perception** - misrepresenting a perception
+- **affliction** - 3 mental poisons
+- **motivation** - Your desire to misrepresent your perception
+- **performance** - indicating something through speaking, not speaking, or through gesture. Even causing others to lie is the same as doing it yourself.
+- **culmination** - someone else comprehends it. If no-one hears it, its just the infraction of senseless speech. Divisive speech and offense speech are similar in this respect
+
+**5. Divisive Speech**
+
+- **base** - living beings who are compatible or un compatible
+- **perception** - as before
+- **affliction** - as before
+- **motivation** - the desire of living beings who are compatible to be separated or the desire of living beings who are incompatible to remain so
+- **performance** - The expression of subject matter than may either be pleasant or un pleasant, and may either be true or false . You may speak or these for either your or another purpose.
+- **culmination** - The others understanding of the words that have been spoken. The end of this is when those who are to be divided understand the divisive words.
+
+**6. Offensive Speech**
+
+- **base** - 
+- **perception** - 
+- **affliction** - 
+- **motivation** - 
+- **culmination** - 
+
+**7. Senseless Speech**
+
+- **base** - 
+- **perception** - 
+- **affliction** - 
+- **motivation** - 
+- **culmination** - 
+
+**8. Covetousness**
+
+- **base** - 
+- **perception** - 
+- **affliction** - 
+- **motivation** - 
+- **culmination** - 
+
+**9. Malice**
+
+- **base** - 
+- **perception** - 
+- **affliction** - 
+- **motivation** - 
+- **culmination** -
+
+**10. Wrong Views**
+
+- **base** - 
+- **perception** - 
+- **affliction** - 
+- **motivation** - 
+- **culmination** -
+
+
+
+ 
