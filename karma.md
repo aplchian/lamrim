@@ -243,43 +243,154 @@ If the killer dies at the same time or after the victim, There is no actual infr
 
 **6. Offensive Speech**
 
-- **base** - 
-- **perception** - 
-- **affliction** - 
-- **motivation** - 
-- **culmination** - 
+- **base** - a living being in whom you can engender hostility
+- **perception** - as before
+- **affliction** - as before
+- **motivation** - the desire to speak in an offensive manner
+- **performance** - saying something un pleasant, which many be either true or false about the deficiencies of someones family lineage, body, ethical discipline, or behavior.
+- **culmination** - speaking in an offensive manner to that person - the person to whom the speech is spoken must understand it
 
 **7. Senseless Speech**
 
-- **base** - 
-- **perception** - 
-- **affliction** - 
-- **motivation** - 
-- **culmination** - 
+- **base** - speech about a topic that is not meaningful
+- **perception** - you yourself perceive the topic about which you wish to speak and then speak. It does not involve someone else to understand it.
+- **affliction** - any of the 3
+- **motivation** - the desire to make arbitrary / unconnected remarks
+- **performance** - to undertake the speaking of senseless speech
+- **culmination** having finished an utterance of senseless speech
+
+has 7 basis: 
+1. speaking of fighting, faultfinding, disputes, divisions
+2. speech such as transmitting and reciting texts with a mind that delights in the treatises of non buddhists, or in the mantra vehicle of brahmins
+3. expressions of helplessness such as wailing
+4. speaking of laughter, play, entertainment, and enjoyment
+5. talking about news of commotion, such as news of kings, ministers, nations, and thieves
+6. speaking like a drunkard or lunatic
+7. the talk of one who maintains wrong livelihood.
+
+disjointed, irreligious, and senseless speech is speech that is jumbled, reveals afflictions, or is uttered while laughing, singing, or viewing actors and the like
+
 
 **8. Covetousness**
 
-- **base** - 
-- **perception** - 
-- **affliction** - 
-- **motivation** - 
-- **culmination** - 
+- **base** - the wealth or possessions of others
+- **perception** - perceiving the basis to be what it is
+- **affliction** - any among the 3
+- **motivation** - the desire to make the wealth or property your own
+- **performance** - striving at the contemplated purpose
+- **culmination** - thinking "may it become mine", about wealth and the like ... the determination that it will become yours
+
+for this to be full fledged covetousness 5 qualities are required:
+
+1. having a mind that is exceedingly attached to your own resources
+2. having a mind of attachment that wants to accumulate resources
+3. having a mind of comprehending or experiencing the good things of others -- their wealth and so forth
+4. having an envious mind -- thinking that whatever is another should be ones own
+5. having a ming that is overcome, due to covetousness, by shamelessness and an obliviousness about the determination to be free from the faults of covetousness
+
+if any of these 5 are not present, there is no actual covetousness. the Levels of yogic deeds says to apply these 5 to all 10 non virtues
+
+An example of not full-fledges covetousness is thinking things like "O how great would it be if others knew me to have such good qualities as being dispassionate, retiring, persevering, learned, and generous"... etc.
+
+
 
 **9. Malice**
 
-- **base** - 
-- **perception** - 
-- **affliction** - 
-- **motivation** - 
-- **culmination** -
+- **base** - same as offensive speech
+- **perception** - same as offensive speech
+- **affliction** - same as offensive speech
+- **motivation** - the desire to do such things as strike others, thinking such thoughts as, "How nice would it be if they were killed, bound, or their resources were ruined, either naturally or by another person"
+- **performance** - having thought the though
+- **culmination** - a determination or decision to do things such as beating
+
+It is complete if the following 5 attitudes are present, and incomplete if they are not
+
+1. an attitude of hostility driven by a reifying apprehension of the characteristics of the causes of harm and the phenomena related to them
+2. in impatient attitude by way of not being patient with those doing harm to you
+3. a resentful attitude based on repeated improper attention to and mindfulness of the causes of your anger
+4. An envious attitude which thinks "How nice would it be if my enemy were beaten or killed"
+5. an attitude that is dominated by a lack of shame about your malice and obliviousness about the determination to be free of its faults
+
+Examples of simple malice:
+
+"someone is harming me or has harmed me" and thinking about how to bring harm to whoever is doing or did the harm --- this is malice 
+
+Also, the simple wish that someone else relatives, resources, or virtue, etc might deteriorate in this lifetime, and the wish that someone might go to a miserable realm in a future life time
+
+
 
 **10. Wrong Views**
 
-- **base** - 
-- **perception** - 
-- **affliction** - 
-- **motivation** - 
-- **culmination** -
+- **base** - existant objects
+- **perception** - perceiving to be true the meaning of a mistaken denial of the existence of an existent object
+- **affliction** - any of 3 mental poisons
+- **motivation** - the desire to deny the existence of an existent object
+- **performance** - the initiation of that attitude. There are 4 types of such performances: mistaken denial of causes, effects, activities, and existent entities. **causes** - thinking that right or wrong behavior do not exist, and so forth. **effects** - thinking that the fruitions if these sorts of behavior do not exist **activity** - thinking there are no fathers or mothers, thinking there are no former or future lives, thinking living beings cannot have spontaneous birth. **existent entities** - thinking that arhats and such do not exist
+- **culmination** - the certainty that you have denied something. 
+
+A full fledged wrong view is associated with these 5 attitudes:
+
+1. an attitude of confusion due to not knowing objects of knowledge exactly
+2. a violent attitude, due to delighting in sins
+3. an attitude that continuously operates in the wrong way because of pondering improper teachings
+4. an attitude that is impaired because of mistaken denial that things that such things as gifts, religious offerings, burnt offerings, and right behavior do not exist
+5. an attitude that is dominated, due to these wrong views, by the shamelessness and obliviousness about the determination to be free of its faults
+
+
+If these 5 are not present, a wrong view is not full fledged
+
+
+
+
+--
+
+With respect to he 10 non-virtues:
+
+you undertake **killing**, **offensive speech**, and **malice** with any of the 3 mental poisons, but bring them to culmination with hostility.
+
+you undertake **stealing**, **sexual misconduct**, and **covetousness** with any of the three mental poisons, but they come to culmination only with attachment
+
+for **lying**, **divisive speech**, and **senseless speech**, they are undertaking and culminated with any of the 3 mental poisons
+
+You undertake **wrong views** with any of the 3 mental poisons, but you bring it to culmination only with delusion.
+
+#### 2. Distinctions of Weight
+
+The distinctions of weight are explained in 2 parts:
+
+1. the weights of the paths of non virtuous actions
+2. the criteria for powerful actions
+
+
+**the weights of the paths of non virtuous actions**
+
+1. **weighty due to attitude** - those done with intense forms of the 3 mental poisons
+2. **weighty due to performance** - killing by torture, frightening them, etc.
+3. **weighty due to absence of an antidote** - without vows, feeling ashamed, etc.
+4. **weighty due to clinging to the perverse** - that done on reliance of a wrong view -- ex. killing for religious reasons.
+5. **weighty due to its basis** - killing large animal, human, fetus, bodhisattva, etc.
+
+Killing done with the opposite of these is light.
+
+The above examples were for killing, but they are the same for others. Stealing a lot, stealing from the poor, etc.
+
+The Levels of Yogic Deeds speaks of 6 ways in which actions are weighty:
+
+1. **conditioning** - actions motivated by intense forms of the mental poisons, or by their absence
+2. **habituation** - frequently doing, or becoming used to and deeply involved in either virtuous and non virtuous actions for a long times
+3. **nature** - for physical and vocal, the earlier are weighted, and for mental the later are weighted
+4. **basis** - actions that help or harm those like the Buddha, Dharma, Sangha, etc.
+5. **fixation on incomplete factors** - as long as you live you completely take up non virtue and don't take up virtue once.
+6. **eradication of unfavorable factors** - having eliminated the group of non virtues, you become free from attachment and cultivate virtue
+
+
+**discussion of the criteria for powerful actions**
+
+pg 231
+
+
+
+
 
 
 
