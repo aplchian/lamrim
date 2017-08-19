@@ -386,7 +386,291 @@ The Levels of Yogic Deeds speaks of 6 ways in which actions are weighty:
 
 **discussion of the criteria for powerful actions**
 
-pg 231
+The strength of actions is explained in terms of 4 aspects: recipient, support, objects, attitude
+
+**1) Strength in terms of recipient:**
+
+There is strength in actions directed towards the 3 jewels, gurus, those who are like gurus, parents, and the like. Though you direct no intense thoughts toward them or do them only small harm, the ensuing mixed and merit is great. 
+
+If you steal from the community, the result will be very harsh. 
+
+If you were to steal merely a lead, fruit, flower, etc. you would be born as a living being in a great hell. They would then be freed from this hell and born as impoverished animals or hungry ghosts.
+
+The Buddha said that you cannot even use something such as a flower dedicated to the community or to a monk. You may not give it to a householder, and for a householder to use it is unsuitable.
+
+Within the community, persons who are bodhisattvas are extremely powerful recipients in terms of activities that are either virtuous or non virtuous.
+
+It is said that if someone were to despise any bodhisattva it would be a sin immeasurably greater than that of someone stealing all the belongings of all living beings.
+
+It is the same with looking up a bodhisattva with faith and singing their praises.. so much merit.
+
+You should take this subject very seriously.
+
+**2) Strength in terms of support:**
+
+Just as when a ball of iron is shaped into a boat it won't sink, but will if it's still a ball... sins committed by those that are not knowledgeable are heavy and light as well.
+
+Just as a fly in mucus can not get itself out, those without knowledge cannot get themselves out of even small shortcomings. They cannot do virtuous actions, because they are without regret. Even though they have previous virtuous actions, they defile them with sin, because they hide their faults.
+
+In 5 ways light causes of fruitions in the present will ripen in hell: being ignorant, having small roots of virtue, having weighty sins, not having been regretful and perform a purification, and not initially cultivating a virtue
+
+**Therefore, the Buddha said that non virtues are light fro the knowledgeable who regret their former non virtuous actions, restrain themselves from future downfalls, do not conceal their sins, and do virtuous actions as remedies for those non virtuous actions.**
+
+Non virtues are weighty for those that do not do these.
+
+Also, having the support of a vow and acting within that vows greatly increases ones merit.
+
+Dromtonpa says that compared to the sins that are related to the teaching, the sins of the 10 non virtues are insignificant.
+
+**3) Strength in terms of objects:**
+
+Among the giving of gifts to living beings, the gift of the teaching is vastly superior to the gift of material things. Among offerings to the buddhas, the offering of practice is vastly superior to the offering of material things. 
+
+**4) Strength in terms of attitude:**
+
+There are variations in the amount of merit you accumulate from the perspective of differences in attitude such as focusing on superior or inferior goals, or focusing on your own  or others welfare.
+
+The amount varies as well from the perspective of the strength or weakness of your attitude, water it is brief or long-lasting, and so on.
+
+With regard to wrongdoing, afflicted attitudes that are strong and long-lasting have greater strength and, among these, hatred is very powerful
+
+Anger, moreover, toward spiritual companions, and, even more, toward conquerors children, is very weighty.
+
+```
+When people have malice towards each other, 
+Leaning and ethical discipline cannot protect them from its fruition,
+Concentration does not protect them, nor can living in solitude;
+Generosity does not protect them, nor does offering to the buddhas
+
+- King of Concentration Sutra
+```
+ 
+
+## An Exposition of the Effects of Nonvirtue
+
+### A. Fruition Effects
+
+Each of the 10 paths of action depend upon a basis of three mental poisons that occur in three strengths: small, medium, and great. Therefore, there are 3 fruition effects for each action.
+
+the *Levels of Yogic Deeds* says that through each of the 
+
+**great forms of the 10 non virtues** - killing and so forth -you will be reborn in the hells, 
+**medium forms** - reborn as a hungry ghost
+**small forms** - reborn as an animal
+
+### B. Causally Concordant Effects
+
+Even when you are reborn from the miserable realms as a human, you experience the effects of non virtuous actions as follows:
+
+- killing - short lifetime
+- stealing - lack of resources 
+- sexual misconduct - an unruly spouse
+- lying - much slander
+- divisive speech - loss of friendships
+- offensive speech - hearing un pleasant words
+- senseless speech - others not listening to your words
+- covetousness, malice, wrong views - predominance of attachment, hostility, and confusion
+
+The former gurus assert that liking to kill and so on even once you have been born a human are casually **concordant behavioral effects**, and the above mentioned effects are **causally concordant experiential effects**.
+
+
+
+### C. Environmental Effects
+
+- **killing** - things in the external environment such as food and drink, medicine, and fruits will have little strength, be ineffective, have little potency and power, or being difficult to digest, will induce illness.. hence most beings will die without living out their expected life spans.
+- **stealing** - you will have few fruits,the fruits will not be perfect, will change, or will be partially spoiled. There will be severe droughts or torrential downpours. The fruits will dry up or disappear.
+- **sexual misconduct** - living where there is excrement and urine, mud, filth, unclean things, many evil smells, misery, and discomfort.
+- **lying** - any work you do in fields or boats will not flourish; there will be no harmony among your co workers, and for the most part they will be deceitful.. and you will be fearful and have many causes to be afraid.
+- **divisive speech** - you will be in a place that is bumpy, craggy, uneven, and difficult to traverse; and you will be fearful and have many causes to be afraid
+- **offensive speech** - you will be in a place that is full of logs, thorns, large rocks, sharp stones, and many broken bricks; that lacks waterfalls, lakes, or ponds; is rough, drab, arid, salty, barren, vile, and is full of dangerous animals; and you will have many causes to be afraid.
+- **senseless speech** - you will be in a place where fruit trees do not bear fruit, bear fruit at the wrong time, or bear no fruit at the proper time; the unripened appear to be ripe; the roots are not strong, and the tree does not last long. There are no many comforts such as parks, groves, and pools; and you will have many reasons to be afraid
+- **covetousness** - all excellent things will deteriorate and diminish every year, every season, month, and even each day, and will not increase
+- **malice** - you will be where there are epidemics, injury, infectious diseases; quarrels, and many disputes with opponents armies; lions, tigers, and the like; poisonous snakes, scorpions, and many fireflies; and harmful yaks has, robbers, and the like.
+- **wrong views** - you will be in an environment where the best and principal sources of resources will disappear; where unclean things will appear to be most pure, and misery will appear to be bliss; and where you will have no home, protector, or refuge.
+- 
+
+
+
+## Virtuous Actions and Their Effects
+
+### Virtuous Actions
+
+The physical actions of those who reflect on the faults of killing, stealing, and sexual misconduct and have a virtuous attitude, according to *Levels of Yogic Deeds*.
+
+They have also carried out the performance of correctly restraining themselves from these non virtuous actions and have brought this resting to culmination. The same for the vocal actions and mental actions.
+
+Therefore, apply to each of the 10 actions, the 4 aspects of basis, attitude, performance, and culmination. This is illustrated using killing as an example:
+
+The **basis** of giving up killing is another living being. The **attitude** is seeing killings faults and desiring to give it up. The **performance** is the activity of having correctly restrained yourself from the killing. The **culmination** is the physical actions of completing the correct restraint. 
+
+The others are like this swell.
+
+
+### The Effects Virtuous Actions
+
+```
+Those who have cultivated these 10 through fear of cyclic existence and without great compassion, but following the words of others, will achieve the fruit of the shravakas.
+
+Those who are without great compassion or dependency on others who want to become buddhas themselves... these are pratyekabuddhas
+
+Those who have an expansive attitude and have cultivates great compassion, skillful means, great aspirational prayers, in no way abandoning any living being, and focusing on the extremely vast and sublime wisdom of a buddha, they will achieve the level of a bodhisattva and all perfections. Through practicing these activities great deal on all occasions they will achieve all the qualities of a buddha.
+
+- The Sutra On the 10 Levels
+```
+
+## A Presentation of other Classifications of Karma
+
+Other classifications of karma are presented in 2 parts:
+
+1. The distinction between projecting and completing karma
+2. Karma whose result you will definitely or only possibly experience
+
+### 1. The distinction between projecting and completing karma
+
+Although the karma that projects a rebirth into a happy realm is virtuous karma, and karma that projects a rebirth into a miserable ream is non virtuous karma, there is no certainty with regard to completing karma. 
+
+Non virtuous actions create even in the happy realms such effects as not having complete limbs, fingers, or sensory organs; and having unpleasant color, short lifespan, many illnesses, and poverty. Further virtuous actions create consummate wealth even fro animals, and hungry ghosts.
+
+There are 4 sides to the relationship between being projected and being completed.
+
+Among lives that are the result of virtuous projecting karma, there are both results from virtuous completing karma and from non virtuous completing karma. 
+
+Among lives that are the result of non-virtuous projecting karma, there are both results from virtuous completing karma and from non virtuous completing karma. 
+
+```
+Understand that virtuous and non virtuous actions project and bring to completion birth in the happy realms and the miserable realms. Projecting karma projects a fruition. Completing karma is that which, in a rebirth, you experience the wanted and unwanted
+
+-Asanga Compendium of Knowledge
+```
+
+A single action projects a single rebirth and does not project many rebirths. There are many completing actions, but many projecting actions do not project a single body.
+
+```
+There is karma where a single actions project one body. There is karma where a single actions projects many bodies. There is karma where many actions project a single body. There is karma where many actions project many bodies.
+
+ Compendium of Knowledge
+```
+
+The commentary explains Asanga's 4 types of karma, respectively, as a single instant of an actions nourishing a seed of only a single lifetime's fruition; that action nourishing a seed of many lifetimes fruition; many instants of an action again and again nourishing a seed for just a single body; and many mutually dependent actions repeatedly nourishing seeds for the many bodies of a succession of lifetimes.
+
+^^ huh?
+
+
+### 2. Karma whose result you will definitely or only possibly experience
+
+```
+Karma whose result you will definitely experience is that consciously done and accumulated. Karma whose result you are not certain to experience is that consciously done but not accumulated.
+
+- Levels of Yogic Deeds
+```
+
+The same text sets forth the distinction between having done karma and having accumulated karma.
+
+```
+What is a karma that you have done? An actions that you have thought about or that you have consciously set into motion either physically or verbally.
+
+Karma that you have accumulated is that not included among the following 10 types of actions:
+1. done in dreams
+2. those done unknowingly
+3. those don unconsciously
+4. those done in error
+5. those done forgetfully
+6. those done without wanting to
+7. those naturally ethically neutral
+8. those eradicated through regret
+9. those eradicated with a remedy
+
+Karma that you have accumulated is the remains actions, the ones not included in these 10 types of action. Karma that you have not accumulated is just the 10 types of actions indicated above
+
+- Levels of Yogic Deeds
+
+```
+
+There are no mental actions that are not intentionally done, nor are there any that you are forced by another to commit.
+
+From the viewpoint of the time at which you experience a result, there 3 types of verdantly of experiencing results of karma:
+1. experiencing it here and now - effect of actions which ripen in this very lifetime in which you do the actions
+2. experiencing it after taking rebirth - experience in the next lifetime
+3. experiencing it at another time - ripen in or after the 3rd lifetime.
+
+The way in which the many virtuous and non virtuous karma that exist in your mind stream ripen as follows:
+
+1. whichever karma is weightiest will ripen first
+2. If weights are equal, whatever karma manifests at the time of death will ripen first
+3. If this also is the same, whatever karma you have predominantly come habituated to will ripen first
+4. If this also is the same, whatever karma you have done first will ripen earliest
+
+
+## Reflecting on Karma and it's Effects in Detail
+
+It is certainly the case that you will acquire a good body and mind through giving up the 10 non virtuous actions. Nonetheless, if you were to bring about a body and mind that are fully qualified, this would accelerate your cultivation of the path as nothing else would. Therefore, seek such a life.
+
+### A. The attributes of the fruitions
+
+There are 8 fruitions:
+1. **consummate life span** - when a virtuous projecting karma from a previous lifetime projects a long life span and you live for the long lifetime that was projected. Living in a happy realm
+2. **consummate color** - having an excellent body by way of its color and shape; being pleasant to look at because you do not have incomplete sensory faculties. body
+3. **consummate lineage** - been born with good lineage that is esteemed and famed in the world. birth
+4. **consummate power** - great resources, and abundance of close associates and helpers. resources and helpers
+5. **trustworthy words** - words that living beings will accept because you are suitable to be trusted not to delude others physically or verbally, and are an authoritative witness in all disputes
+6. **renown as a great power** - being honored by a great multitude of beings because of your fame and wide acclaim dude to your confident generosity and possession of good qualities such as perseverance
+7. **being a male** - to have a male organ. having the capacity of all good qualities
+8. **having great strength** - by the power of previous karma, naturally experiencing little injury due to illness, and great enthusiasm arising from this life circumstances. Having power in your activities
+
+
+
+### B. The effects of the of the fruitions
+
+1. **life span** - you accumulate much virtuous karma for a long time in terms of working for the welfare of both oneself and others
+2. **color** - merely through seeing you, disciples are pleased and gather around you. They then listen to your words and carry out your instructions.
+3. **lineage** - people carry out your instructions without disregard
+4. **power** - through giving, you gather living beings and mature them
+5. **trustworthy words** - through kind speech, purposeful behavior, and being one who's aims are the same as your disciples, you gather living beings and mature them.
+6. **great power** - because your have helped and assisted others in all activities, they repay your kindness and listen immediately to your instructions
+7. **male** - you have the capacity for all good qualities. 
+8. **strength** - because you are not disillusioned about your or others welfare and are steady in your great enthusiasm for them, you will obtain power of discernment, and then quickly have the superknowledges
+
+
+
+### C. The causes of the of the fruitions
+
+1. **life span** - not harming living beings and application of nonviolent attitude. Saving the lives of others, not harming, caring for the sick, etc.
+2. **color** - giving light, such as butter lamps, and new clothing. By relying on kindness and giving jewelry, you will have god physical form. The result of being without jealousy is said to be good fortune
+3. **lineage** - first overcoming pride, and then make obeisance and so forth to gurus and the like, and respecting others as if you were their servant
+4. **power** - giving food, clothing and so forth to those that request them; even when they are not requested, giving such assistance, and giving to those who suffer and to recipients who have good qualities but no possessions
+5. **trustworthy words** - giving up the 4 vocal non virtues
+6. **great power** - making aspirational prayers to acquire various good qualities in the future, making offerings the 3 jewels, making offerings to parents, sravakas, pratyekabuddhas, boots, masters, and gurus.
+7. **male** - delight in the attributes of a male, lack of delight in female things and seeing their disadvantages
+8. **strength** - accomplishing what cannot at all be done by others, assisting in what can be done with your collaboration, and giving food and drink.
+
+If these 8 causes are endowed with 3 causes - **pure attitude, pure application, and pure recipient** their fruitions will be outstanding.
+
+There are 2 types of pure attitude: **self directed** and **other-directed**
+
+**self directed pure attitude**:
+
+1. **not hoping for fruition** - which is dedicating the virtues from your creation of causes for unexcelled enlightenment
+2. **intense power** - which is achieving the causes from the depths of your heart
+
+
+**other directed pure attitude**:
+
+1. abandoning jealousy, competitiveness, and contempt when you see fellow practitioners of the teaching who are better, equal, or less than yourself, and admiring them;
+2. even if you are unable to do the above, discerning many times every day that you must do it.
+
+There are 2 types of **pure application** -- send directed and other directed.
+
+**self directed pure application**:
+
+- applying yourself to cultivating virtue for a long time, without interruption and with great intensity
+
+
+**other directed pure application**:
+
+causing those who have not adopted vows and other commitments to do so, praising those who have made commitments so that they may delight in them, making them continue, and making them not abandon them.
+
+**Pure Field** is so called because those 2 - attitude and application are similar to a field in that they give effects that are numerous and good.
+
 
 
 
