@@ -64,4 +64,27 @@ It is not sensible to engage in actions that seem to give short term happiness b
 
 ### In Particular, the way to purify through the 4 powers.
 
-pg 251
+Though you make great effort not to be defiled by wrongdoing, faults may arise due to such things as carelessness and preponderance of afflictions. If this happens, you shouldn't disregard them without bring, so you must try to apply the remedy about which the buddha spoke.
+
+```
+Maitreya, if bodhisattvas, the great heroes, possess these 4 teachings, then they will overcome any sins that they have committed and accumulated. What are the four? They are the power of eradication; the power of applying remedies the power of turning away from faults; and the power of the foundation.
+
+-Sutra giving the Four Teachings
+```
+
+#### 1. The power of eradication
+
+This power is great remorse for having done non virtuous actions since beginning less time.  In order to feel this, it is necessary to meditate on the way in which you produce the 3 effects of actions -- fruitional and so forth. At the time of putting this into practice, do so by way of the 2 methods -- the confusion of sins in the Sutra of Golden Light, and the confession of sins by way of the 35 buddhas.
+
+#### 2. The power of applying remedies
+
+This power has 6 sections:
+
+1. **Dependence on the profound sutras** - includes such actions as receiving the oral transmission of sutras such as the prajnaparamita, retaining their meaning, and reading them.
+2. **Interest in emptiness** - to comprehend the reality in which there is no self and which is luminously clear, and to have conviction that the mind is primordially clear
+3. **Dependence on recitation** - to recite, according to the rituals, the special formulae such as the 100 syllable mantra of Vajrasattva. Repeat the recitations until you see signs that you have cleared away your sins.
+4. **Dependence upon images** - to make images of the Buddha once you have acquired faith in him
+5. **Dependence upon worship** - to make a variety of offerings to an image of the Buddha or to a stupa
+6. **Dependence on names**- to hear the recitation of and retain the names of the buddhas and great conquerors children
+
+
