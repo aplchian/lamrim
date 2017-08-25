@@ -87,4 +87,85 @@ This power has 6 sections:
 5. **Dependence upon worship** - to make a variety of offerings to an image of the Buddha or to a stupa
 6. **Dependence on names**- to hear the recitation of and retain the names of the buddhas and great conquerors children
 
+The 6 are the remedies that occur in Santideva's Compendium of Trainings. There are many others.
+
+#### 3. The power of turning away from faults
+
+This power is actually restraining yourself from the 10 non virtuous actions. 
+
+In *The Sun Essence Sutra*, the Buddha said that this restraint destroys all karma, afflictions, and obscurations of the teaching created physically, verbally, or mental by way of killing and the like. This power eliminates bad actions that you have created, got others to create, and rejoiced in others creating. Confessions that lacks an attitude of whole hearted restraint becomes merely words.  So having this conviction to not commit negative acts again is very important.
+
+The development of this attitude depends on the first power.
+
+#### 4. The power of the foundation
+
+This power is going for refuge to the three jewels and generating bodhichitta. 
+
+A complete remedy required all 4 powers to be present. 
+
+Sins are removed in several ways. Big suffering like birth in miserable realms could result in just a mere headache. Sins which you would have experienced for a long time become very short. 
+
+There is no certainty about how sins are removed, because it depends on how powerful the purification is. 
+
+These powers weaken the capacity of karma to bear fruit. Likewise, anger and the production of wrong views weaken the roots of virtue to give effects. 
+
+It makes it so there is no combination of conditions for maintaining the potency of the seeds deposited by karma, the time for being maintained has changed. Because of this, there is thorough eradication of the karma. 
+
+You have not found the remedy that destroys the seeds of the afflictions. Yet, you have weakened the karma with contrary conditions. 
+
+Even through other conditions do assemble, the karma does not fructify.
+
+Even though you strive to accumulate virtuous karma, you must be careful to guard against anger and the causes that destroy this virtuous karma. 
+
+```
+A person of sinful conduct -
+Who has committed sins and not gained merit,
+Who has parted from the teaching and attained its opposite-
+Will fear death, like a weak boat breaking apart in a great river.
+
+A person who has gained merit and has not committed sins,
+And who has practiced the teaching of the holy ones' system,
+Will never fear death,
+Like a sturdy boat going across a river
+
+-Collection of Indicative Verses
+```
+
+```
+The unruly may speak at length on what is reasonable, 
+Yet they do not act accordingly.
+Like herdsmen counting others' livestock,
+They do not attain the fortune of virtuous practice.
+
+Those who practice the teachings in accordance with their instructions
+And eradicate attachment, hostility, and ignorance
+Attain the fortune of virtuous practice,
+Though they may speak of little of what is reasonable.
+
+Though delighting in conscientiousness
+And fearing unruliness,
+Monks pull themselves from the miserable realms,
+Like elephants pull themselves from the mud.
+
+Through delighting in Consciousness
+And wearing unruliness,
+Monks shake off all sins
+Like the wind shakes leaves from the trees.
+
+-Collection of Indicative Verses
+```
+
+This being so, the proper view of dependent-arising and the causality of the two types of karma is the indispensable foundation for the practices of all the vehicles and the aims of all beings.
+
+```
+If you actually desire high status as a human or diety and liberation,
+You must familiarize yourself with the correct view.
+With wrong views even a person who acts well
+Will have terrible fruitions in all lives.
+
+- Nagarjuna Friendly Letter
+```
+You need to study the texts on these to develop and intense and enduring certainty. **Take this to be a goal of crucial importance**
+
+
 
