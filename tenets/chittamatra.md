@@ -46,8 +46,67 @@ In addition to the 37 aspects of the path to enlightenment, the Chittamatra scho
 
 They also assert full enlightenment , not just liberation as the result of the path. In full enlightenment, the practitioner attains the 2 bodies of a buddha, the form body and the truth body... rupakaya and dharmakaya... thus accomplishing the purposes of both self and others. The truth body is often further divided into 2: wisdom truth body(jnanakaya) and the natural truth body(svabhavikakaya); the form body is also further divided into 2: the enjoyment body(sambhogakaya) and the emanation body(nirmanakaya). 
 
+## The Three Natures
+
+They assert that all phenomena have three natures:
+
+1. the dependent nature
+2. the imputed nature
+3. the perfect nature
+
+### Dependent Nature
+
+or 'other powered' -- an object that is the result of causes and conditions.
+
+-
+
+Every moment of mind is laden with karmic seeds. Some are ripening, while others are being created by our mental, verbal, and physical actions. Our whole universe and dictated by the creating and ripening of these seeds. The chittamatrans calls this the **causal flow**, which is the base upon which all else operates.
+
+The dependent nature is what arises in our consciousness from the causal flow due to causes and conditions, and is apprehended as two polarities the subject(mind) and the object(object apprehended by the mind). To us it seems like the eye consciousness is here in the head and the pen is over there.  -- these are 2 distinct and very unrelated objects. To the chittamatrans there is a very strong connection. **Our experience of the pen-- of the flow of the pen-- and the pen itself are actually the same entity**. There is no difference between these two. 
+
+**The flow of consciousness, from which the subjective and objective aspects arise, is the dependent nature**
+
+Dependent natures include all impermanent phenomena. All the objects of the universe arise, abide, and disintegrate in conjunction with the consciousness that append them and are one entity with them.
+
+### Imputed Nature
+
+When we apprehend an object, its as if subject (our perception) and object (the object) are different entities, distinct and independent. This false distinction of subject and object is superimposed onto the object by the mind. So this is *imputed nature*. Furthermore, we almost always embroider our apprehension of the object in some way, by imputing properties and values onto it that it does not have. These 2 natures tie us to cyclic existence.
+
+--
+
+The apparent distinction between subject and object is a mistaken view that only comes about because of the conceptual, habituated aspect of our mind. 
+
+**The appearance of the mind and its object as two separate, unconnected things, is the imputed nature** 
+
+Subject and object are one entity, but we impute separateness onto them. 
+
+Instead of seeing that the subject and object arise from the single flow of experience, we conceptualize different entities -- the object grasped by the mind and the mind that grasps the object. "Grasped" and 'grasper' are terms used by the chittamatra school. 
+
+Instinctively, we *assume* that objects exist separate from the mind, but any investigation of objects necessarily involves mind in some way, so knowledge always has a subjective element. We know there is a pen, because we experience a pen. Thus, no object of knowledge exists apart from the mind experiencing it.
+
+**Be careful though, you may think it is saying that the object does not exist at all. This is not correct. This school is simply asserting that external objects cannot exist as an object our universe without taking into account the mind experiencing them.**
+
+Therefore, although the mind truly exists, the objects of its experience -- that is, all the objects that comprise the universe-- cannot truly exist because they rely on the mind, coming into being as projections of our perception, not as separate entities.
+
+If the mind is inextricably involved with external objects, then it must also be the case with mental object, including the all-important concept of "I". Nothing exists in our world that is not an experience of mind. Object and mind are one entity.
+
+**The dependent natures is the mind/object relationship, and the imputed nature is what we put on top of that perception.**
+
+From the raw experience of the object, we impute the subject/object separation, and then on top of that all the other elements arise: labeling, judging, internal verbalizing, and myriad other conceptual minds. **The Chittamatra scholars say that language is what acts most powerfully to construct the imputed nature.**
+
+Chittamatra's further divide the imputed nature into two: 
+
+1. existent imputed nature - permanent phenomena such as unproduced space and abstractions -- things that are not products of causes and conditions.
+2. non-existent imputed nature - the one we have been looking at -- subject and object as different entities, as well as seeing objects as established by their own character, and so on. They are also things that have no existence at all, conventionally or otherwise, such as much loved horns of the rabbit.
 
 
+
+### Perfect Nature
+
+Only when we become highly realized can we see that no such subject-object duality actually exists; this non duality is the *perfect*, or thoroughly established, nature of the object.
+
+
+pg. 55
 
 
 
