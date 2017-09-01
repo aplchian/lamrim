@@ -105,8 +105,49 @@ Chittamatra's further divide the imputed nature into two:
 
 Only when we become highly realized can we see that no such subject-object duality actually exists; this non duality is the *perfect*, or thoroughly established, nature of the object.
 
+--
 
-pg. 55
+Perceiving a duality between the mode of existence of an object and the way the mind conceives the object will not break down until a person has realized a very advanced state of mind.
+
+At present, the karmic baggage we carry includes countless lifetimes of conceiving objects as being independently and externally existent; as a result, when an object and a mind perceiving that object arise in the mind, we instinctively see them as two separate things.
+
+When our mind becomes more subtle through meditation, the gap between reality and illusion narrows.. the veil that the mind throws of the object gets thinner.
+
+Eventually our meditation will become complete direct perception, with no use of image generalities. If we are meditating on our body for ex. there will be no concepts of body as the object and mind as subject. "Body" and "mind meditation on body" will become one.
+
+Through meditation, the sense of the object being 'out there' ceases; the object we are meditating on becomes a part of the mind itself, and we have thoroughly established the lack of duality between subject and object. Hence, the other name for this nature is *thoroughly established*
+
+**Emptiness for the chittamatra school is not the absence of essence that other schools ascribe, but the absence of subject-object duality.**
+
+So, what is the chittamtra position on the realization of the 2 kinds of selflessness -- persons and phenomena?
+
+- selflessness of persons - same as Sautrantika -- there is no self-sufficient person in any way
+- selflessness of phenomena
+
+The Chittamatrins agree with other Mahayana schools that realizing selflessness of persons is sufficient for removing the obscurations to liberation, removing the obscurations to omniscience - to buddhahood -- requires the realization of the selflessness of phenomena as well. 
+
+The perfect nature is often defined in the texts as the aspect of a phenomenon observed in such a way that the observation purifies both obscurations. For them, unlike the Madhyamikas, this means realizing the absence of subject and object. **This is the emptiness that a Bodhisattva must realize to attain full enlightenment**
+
+
+### The Mind-Basis-For-All
+
+The law of cause and effect, or karma is a fundamental assertion throughout the whole of Buddhism. No Buddhist disputes that every cause has an effect. We create the cause; we get the result.
+
+So if everything is impermanent, the yesterday me would be different that today me. How can the karma of that other person ripen in me?
+
+When an action is created a propensity is placed on the consciousness.The other schools just say its someone on the consciousness.
+
+Chittamatrins asserted a 7th consciosness beyond the 6. They say that the consciousness where the karmic imprint is placed must be neutral.. so that means the 6 consciousness aren't suitable since they fluctuate between positive, negative, and neutral. And they are temporary and cease when this life ends. They even cease when we go unconscious in this life. 
+
+They say it is this 7th mind that carries the seeds that will ripen to reestablish the more normal minds once a meditator comes of a deep meditation.
+
+**That mind is the mind-basis-for-all.**
+
+It acts as a base where the karmic seeds are stored.
+
+They also posit an 8th mind.. the **afflictive mental consciousness**.. this mind filters everything through the sense of a permanent "I".
+
+pg. 85
 
 
 
