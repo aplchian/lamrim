@@ -36,6 +36,24 @@ We could move to the country and just look at the city and laugh like they are o
 If that approach becomes apart of a spiritual view it becomes sickening because it regards average citizens as terrible, as failures to humanity, as embarrassing. This approach comes from preconceived ideas about living in the city and we are not willing to communicate with those preconceptions.
 
 
+We have preconceptions about work, sex, and money. Just because we find it difficult to relate to these things doesn't mean we should rum away from them. **Because there is something destructive and difficult, there must be something creative involved aswell. Relating to that creative aspect is the point here.**
+
+There is the story of the arhat who finds a bone at a charnel ground and contemplates how it came from death which came from birth, etc. all the way to ignorance in the 12 links. We could work in the same way in our own situation. We don't have to reject or abandon anything. **We could work on the creative aspect of situations.**
+
+The dharma teachings aren't going to be romantic, but could be painful and cause paranoia. But at the same time, we can work with the situation and find something creative in it. We can include all of these things as part of the inspiration. 
+
+We have so many entertainments.. internet, books, friends, etc, etc. We could get tired of this so we could try to entertain ourselves in a spiritual way rather than a gaudy or flashy way.
+
+We don't have to completely eliminate entertainment. The problem is a lack of sense of humor about the whole thing. We are so serious about our entertainment, even comedy. Instead you could entertain yourself with a sense of humor which doesn't have to be cynical. You can enjoy everything as a play. **Whereas if you impose your likes and dislike on everything the situation will become very tiring because you're seriously selecting all the time.**
+
+As practitioners we have to work with the karmic situation of America, to start with. A certain reformation can take place by natural force -- not through carrying placards or staging demonstrations. But it won't happen in an easy or luxurious way. We don't know what the reformation will look like. We have to work with our own inspiration.
+
+You may try to get away from soviety, but you will still have to deal with society somehow.. like getting your food, etc.
+
+However, you may find it necessary to separate from society at large at times to gain perspective. Without a comparative POV to see society from there is no working basis. When you step back you gain perspective. However working with soviety is essential to gain that perspective as well. **So the process of stepping back and then reneging should be alternate or be joined side by side -- like the idea of wisdom and compassion being side by side. Meditation can provide that non dual perspective.**
+
+
+
 
 
 
