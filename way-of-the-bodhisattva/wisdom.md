@@ -132,6 +132,8 @@ When ordinary beings see a thing, they take it to be an absolute love, they woul
 
 The point at issue is that, when ordinary people perceive objects, they believe that they exist in just the way that they appear: perfectly real, and absolutely existent. They do not have the insight of Buddhist yogis, who understand that through objects appear, they are like mirages and do not exist truly. This is the point on with they disagree. 
 
+# 6. 
+
 
 
 
