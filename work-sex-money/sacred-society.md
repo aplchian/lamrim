@@ -48,13 +48,18 @@ We don't have to completely eliminate entertainment. The problem is a lack of se
 
 As practitioners we have to work with the karmic situation of America, to start with. A certain reformation can take place by natural force -- not through carrying placards or staging demonstrations. But it won't happen in an easy or luxurious way. We don't know what the reformation will look like. We have to work with our own inspiration.
 
-You may try to get away from soviety, but you will still have to deal with society somehow.. like getting your food, etc.
+You may try to get away from society, but you will still have to deal with society somehow.. like getting your food, etc.
 
-However, you may find it necessary to separate from society at large at times to gain perspective. Without a comparative POV to see society from there is no working basis. When you step back you gain perspective. However working with soviety is essential to gain that perspective as well. **So the process of stepping back and then reneging should be alternate or be joined side by side -- like the idea of wisdom and compassion being side by side. Meditation can provide that non dual perspective.**
-
-
+However, you may find it necessary to separate from society at large at times to gain perspective. Without a comparative POV to see society from there is no working basis. When you step back you gain perspective. However working with society is essential to gain that perspective as well. **So the process of stepping back and then reneging should be alternate or be joined side by side -- like the idea of wisdom and compassion being side by side. Meditation can provide that non dual perspective.**
 
 
+Once a person is involved in meditation and working on the spiritual path, then the problems with engaging with society are not hangups, but creative opportunities. The everyday situations become part of you meditation practice. 
+
+We have to work on our own attitude to develop an attitude of openness. We can't think we are going to do this and that and the city will reform to our wishes. We have to relate with a much bigger world that includes everyone. 
+
+We don't work to undermine the culture, but the culture provides us a focal point to relate with... so we work with them. We may have inaccurate views of situations, but this doesn't matter. If you work along with situations, things become clear. The initial evaluation doesn't have to be the ultimate landmark. 
+
+The more you involve yourself with society, the more experiences you have, the more workable situations will become. The intensity of your engagement bring space. When you involve yourself with situations such as overpopulation and the overpowering experience of being in the city, your involvement acts as a guardian. It helps others. It protects them, because you refuse to abandon them. You find inspiration within work, sex, and money. Within those things, you can find a connection to the sacredness of society.
 
 
 
