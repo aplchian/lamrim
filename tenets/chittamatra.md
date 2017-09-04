@@ -147,8 +147,51 @@ It acts as a base where the karmic seeds are stored.
 
 They also posit an 8th mind.. the **afflictive mental consciousness**.. this mind filters everything through the sense of a permanent "I".
 
-pg. 85
+### The Features of Mind-Basis-Of-All
+
+The Mind-basis-for-all is a consciousness, as such, it follows the definition of all consciousnesses in that it is non material and is clear and knowing, but it quite different from the other types of consciousnesses.
+
+The first way to see the differences is to look at its 4 features:
+
+1. **object** - everything that is apprehended by the other minds is also apprehended by the mind-basis-for-all. 
+2. **aspect** - Its *aspect* is how it apprehends an object. It apprehends but does not actually ascertain its object, so its called an inattentive or non-ascertaining cognition. Contact is made with the object, but whereas the other minds fully engage with their objects, this mind does not actually ascertain its object. Its as if the object brushes over it, leaving nothing but an impression. When we see a desirable object, the other minds ascertain it, perceiving it and conceptualizing it in various ways, whereas the flavor of that desire stays on the mind basis for all as a propensity. Propensity, imprint, seed are all the same thing. All the other minds ascertain the object but are incapable of retaining anything about it, whereas the sole function of this mind is to retain some sort of taste. Its like right now you are reading and there is noise outside.. your mind can hear it and apprehend it but it may not be ascertained. So this mind cognizes, but never ascertains its object.
+3. **nature** - the mind is clear and knowing, but here knowing should not be taken as an overt understanding of the object; its more in the way of potential. The specific *nature*, is that it is neutral. Of the three: virtuous, non-virtuous, or neutral, the chittamatras say it must be neutral. Otherwise, as a base for karmic seeds, it would taint them with whatever bias it has. 
+4. **accompanying minds** - For a mind to apprehend and object, the 5 always present mental factors must be there: contact, discernment, feeling, intention, and attention. This mind must have all of these, but it is not accompanied by any of the others. 
+
+For a mind to be clear and knowing it must know 'something'. A mind must be a subject that knows an object. The eye consciousness apprehends form, not sound for ex. They say that everything that is apprehended by the other minds is also apprehended by the mind-basis-for-all. 
+
+Its *aspect* is how it apprehends an object. It apprehends but does not actually ascertain its object, so its called an inattentive or non-ascertaining cognition.
 
 
+### The Properties of Mind-Basis-Of-All
+
+For a mind to be the base for the karmic propensities, there are certain properties it must possess. It must be: 
+
+1. **stable** - karmic seeds will stay on the mind stream until they ripen, whether that takes a moment or eon, so the mind that carries them must be stable. Lasting as long as the propensities last, which in effect means until we become enlightened and all karmic seeds have been extinguished. Other minds arise, and cease, but this mind cannot. 
+2. **neutral** - we discussed this; otherwise its bias would affect the seeds it carries. This is like someone who is negative who gives a beggar a coin, but spends the rest of the day regretting it.. that positive action is tainted by the overalls negative atmosphere in which it was created. 
+3. **a conditioned compounded phenomena** - if this mind were permanent, it would not be able to change or function and therefore would not be able to acquire new karmic propensities each time an action is performed. It must be impermanent, and hence a compounded phenomena. Only then will there be a causal interaction between the mind and the action that creates the propensity. This mind must be receptive to take on karmic seeds, and for that it needs to be a conditioned compounded phenomena.
+4. **related to the propensities** - this mind must also be related to the propensities. It's not enough that the mind is a compounded phenomena, there must be a tie between the action and the mind. A propensity is created in relation to a specific mental or physical action, and it is not as if the propensity from the action simply drops into a big container. It absorbs imprints without partiality, but it is in a dynamic and integrated exchange with other consciousnesses.
+5. **basis in its own right** - using the example of the miser who gave the beggar a coin. His miserliness is built up as a habitual tendency for a long time back. Habitual tendencies might be strong, but they are not solid or eternal, and they are not a base upon which all other minds arise. The mind-basis-for-all is different than this. It has not arisen due to the force of familiarity. It has been there as long as there base been mind, and will continue until enlightenment. It is a basis in its own right without relying on other minds to arise. This is the mind that survives at death when all other minds cease. They say that this mind will continue until the end of samsara. As long as there is samsaric mind, this mind endures. 
+
+### Afflictive Mental Consciousness
+
+The mind basis for all is a crucial concept for the chittamatra school when it comes to identifying the sense of self of "I". For the other schools there are 5 aggregates alone and the I is designated upon those aggregates. The chittamatrans reject this saying that if this were so, then the I would not be able to continue from life to life since the aggregates upon which it is designated are absorbed at death. therefore the aggregates are not a suitable base for apprehending something as an "I".
+
+For them, the mind-basis-for-all is the perfect candidate for where the I abides, since it goes from life to life. 
+
+Because this is a base mind that the other minds are unable to apprehend, the chittamatrins had to posit an eighth mind that, called the **afflictive mental consciousness**. This is what ascribes the sense of self on whatever action is done(and hence the cause of all afflictions). 
+
+What the chittamatrans say about the I is quite interesting. They say that although the mind might identify our boyd or our feeling with the sense of "I", this is in fact only temporary. This sense comes and goes and cannot stand as a substantial basis for the "I". They say that below that there underlies a sense of a permanent unitary self that underpins and motivates our whole world. Although buddhism reject the idea of a self, this fundamental driving force that is carries on the mind-basis-for-all comes close to it, although of course it is not a unitary, independent entity. We continue life after life and our karma continues to ripen life after life, because the mind basis for all is the mechanism that carries our sense of self.
+
+**The afflictive consciousness is this very sense of "I" that we carry around all the time.**
+
+This consciousness is the mind that firmly believes that the I really exists, and so this school seeds it as the source of all the internal egoistic dialogue. 
+
+**The the mind-basis-for-all, the afflictive consciousness continues until enlightenment, but gets weaker as we progress towards enlightenment. Its like a container of seeds.. as we burn off seeds of unenlightenment, the mind basis for all will still remain as a container until there are no more seeds left, then there will be no more container.**
+
+For the chittamtra perspective, this afflicted mind is the real cause of our problems. It is the white noise of I, I , I that bubbles away all the time. It is the screen that filters everything we experience the internal discursive conversation that forever runs through our life. This becomes especially clear when we try to meditate. Then we can really hear the ego-radio loud and clear.
 
 
+### How an object exists according to Chittamatra
+
+pg. 92
