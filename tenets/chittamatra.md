@@ -1,3 +1,4 @@
+
 # Chittamatra
 
 ## Texts used in Chittamatra
@@ -194,4 +195,81 @@ For the chittamtra perspective, this afflicted mind is the real cause of our pro
 
 ### How an object exists according to Chittamatra
 
-pg. 92
+You may think from the name 'mind only' that this school asserts that there is only mind, but this is not so. We should not make the mistake of thinking that this schools views are nihilistic.
+
+If there is only mind, does that mean that all of the things that make up our world are merely mental constructions? The mind is clear and knowing, so does that mean the seat you are sitting on is clear and knowing?
+
+The lower 2 schools assert that when the fundamental building blocks aggregate they form the objects of the world as we know it.. thus they posit a causal relationship that is not dependent on a mind perceiving it.
+
+The chittamatras refute this saying that if such an independent external entity were to exist, then it would have to possess an intrinsic quality that would project its appearance to consciousness.
+
+The existence of an independent external entity furthermore implies that whatever is perceived by consciousness must be objective -- it must actually be there in exactly the way the consciousness perceives it. According to the Chittamatras this is not the case. 
+
+Perception by definition is subjective, my perception of an object, such as this piece of paper is going to be different that what you perceive.
+
+Perhaps they will be similar for people of similar cultures, but they will be different.
+
+**Therefore, the page that i perceive does not exist as I perceive it until it is encountered by my consciousness.**
+
+**Chittamatra philosophers do not refute the existence of objects, they refute their external existence.**
+
+Other philosophies posit and external world that exists in an of itself and the mind as something that responds to it, the chittamatra school asserts that the mind and its objects arise simultaneously, from the same karmic cause.
+
+**In every second the whole world as we know it arises and ceases in its apparent duality of subjective and objective aspects, caused by propensities left on the mindstream by our previous actions**
+
+They say that the duality of subject and object arises only due to the impact of strong imprints from our countless previous lives association with ignorance. The notion of difference between subject and object is mere hallucination, and this misperception, this grasping at subject and object as separate entities, is the main root of cyclic existence. **In fact, the perceiving consciousness and object is perceives are the same entity.**
+
+The concept of **same entity** is hard to grasp, and there is no clear explanation about it. As we saw in the other schools there the general idea about how an object is apprehended by a sense consciousness is one of cause and effect. There is an external object that is independent of the mind observing it, and is the cause of the apprehension. Cause and effect requires sequence, so first there is the computer (the cause), and then there is the eye consciousness perceiving the computer (the effect).
+
+**For this school, the eye consciousness apprehending the computer, and the computer itself arise simultaneously; there is no sequence**. We store innumerable imprints on our consciousness, which they call *fundamentally stored*. As such, both the consciousness that experiences and the object that it relates to arise from the fundamentally stored imprints, and both are of the same substance.
+
+**These karmic imprints are activated by the coming together of various causes and conditions, and when activated these karmic seeds turn into both the object experienced and the consciousness experiencing the object. Thus, subject and object are generated from the same source and have a single substantial cause -- that is, they are the same substance.**
+
+```
+ex:
+
+Imagine you are in a dark forest at night. I hear a cry and see a dark shape, its a wolf. I am immediately afraid. From the wolfs side, there is no wolf, and no danger. It doesn't think of itself as a wolf, or as a terrifying animal. All that is from my side. So the entity 'wolf' and the danger all arise simultaneously with the mind perceiving it. They are the same substance.
+```
+
+## Ultimate Truth and Conventional Truth According to Chittamatra
+
+The *Compendium of Ascertainments* states that ultimate truth has 5 characteristics
+
+1. **inexpressible** - its impossible to verbally describe ultimate truth precisely
+2. **non dual** - within the realization of an area being in meditative equipoise who is realizing ultimate truth directly, there is differentiation -- no duality -- of subject and object
+3. **beyond apprehension by the conceptual mind** - the ultimate truth cannot be realized by ordinary peoples cognition but only by the direct perception of an area being
+4. **beyond diversity** - the ultimate truth of an object is not one with its dependent nature, which has many 'diversities' - different factors such production, result, causes, conditions, and so on. For ex. when we establish the final mode of existence of form, the final mode of existence is the non duality of subject and object, so all diversities cease.
+5. **all one taste** - tables, chairs, and so on are different objects, but their ultimate truth is the same. Their final mode of existence is also the mere absence of duality of subject and object. Thus, the ultimate truth of all phenomena are all of one taste.
+
+Of the three natures, *perfect nature* is an ultimate truth. The other 2, dependent and imputed are conventional truths. They say perfect and dependent nature are truly existent and imputed nature is not.
+
+So we can see that this school differentiate between
+
+**Things that truly exist** - as ultimate truths (perfect nature) or conventional truths (dependent natures)  
+**Things that don't truly exist** - imputed natures and fictional conventional truths
+
+**Perfect nature** is an ultimate truth because it is the only mode of existence of an object that possesses these 5 characteristics. Its an ultimate truth because when a practitioner focuses on an objects perfect nature, delusions and ignorance are purified, and continued concentration on the perfect nature leads to the practitioner to the complete cessation of suffering. Focusing on the other 2 natures won't lead to complete cessation because they do not have these 5 characteristics. 
+
+1. **dependent nature** - truly existent -> conventional truth
+2. **imputed nature** - conceptually constructed -> conventional truth
+3. **perfect nature** - truly existent -> ultimate truth
+
+In summary, according to the Chittamatra view, things referred to as external phenomena, such as car, fruit, mountains, etc are not separate entities independent of the experience. Although the language we use to describe our apprehension of an object is similar, at the subtler level, the way we apprehend that object is totally unique to us.
+
+How do I know that the table in my living room exists? I can experience it with the senses, but why label it 'table', and not 'a pile of wood'? Because its legs and tops are constructed in such a way that I can use it as a table. I know it bas its function. For me 'table' is a concept -- something I use to eat at,  to read at, and to work at.
+
+Does this table -- the concept of table, the thing that functions in this way -- exist outside of my consciousness? Naturally the wood exists with the top and 4 legs, but does the object 'table' exist without my mind giving it a label? The Chittamatrans would say no.
+
+**The only way I can prove something exists is by my perception; therefore the thing, cannot exist apart from my perception. The table exists because my eye consciousness sees it. On that base, we build the entire 'conceptualized aspect' as a table**
+
+This is quite difficult to accept if we come at it with our standard logic.
+
+They assert that the object we label 'table' exists, but to prove that the table exists requires consciousness. There is no other way except through smelling, seeing, hearing, touching, etc. **This is something really work investigating.**
+
+Only the mind can prove the existence of something. That does not mean the thing is just in our mind. But things only exists when consciousness apprehends them. **That we see consciousness and object as separate is, in the chittamatra view, the starting point of all our mistakes.**
+
+
+
+
+
+
