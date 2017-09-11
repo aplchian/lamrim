@@ -95,7 +95,7 @@ Kamalashila says that if your moisten your mind with the water of love which vie
 
 #### (i) Cultivating a recognition that all beings are your mothers.
 
-Because cyclic existence is beginning less, your births are also without beginning. Therefore you have died and been reborn again and again. There is no kind of body which you have not taken, no place you have not been reborn, and there is not person who has not been a relative such as your mother. 
+Because cyclic existence is beginningless, your births are also without beginning. Therefore you have died and been reborn again and again. There is no kind of body which you have not taken, no place you have not been reborn, and there is not person who has not been a relative such as your mother. 
 
 Moreover, all beings have not only previously been your mothers but will also be your mothers in the future and limitless number of times. **Reflect on this and become convinced all beings have been your mothers.** Once you develop this conviction, you will easily remember their kindness and so forth. If you do not develop it you will have no basis for remembering their kindness. 
 
@@ -130,16 +130,48 @@ Therefore reflect:
 
 "If abandoning such kind being is unsuitable even for disreputable persons, how can it be appropriate in my case?", and then assume responsibility to repay their kindness. 
 
+```
+It is not in my way to liberate myself while abandoning these beings
+Whose blind ignorance ruins their intelligence
+And who are my fathers and children, serving and lovingly helping me
+Thinking this I made aspirational prayers to liberate these protector less beings.
 
-pg. 40
+Triratnadasa - Praise of Infinit Qualities
+```
+
+**Q: How can you repay their kindness?**
+
+Reply: No matter how much wealth and happiness your mothers obtain in cyclic existence, it all deceives them. Thus you must repay their help thinking, "Formerly your mothers were seriously wounded because the madness of the afflictions possessed them. Then, I produced a variety of further sufferings for these beings who were already suffering, as I had applied sea salt to their wounds. Now I will establish these beings, who have lovingly helped me, in the happiness of liberation, nirvana."
+
+**It is said that a kindness unrepaid weighs more than the heavy burden of the ocean together with Mount Meru and that repaying others' kindness occasions the praise and the learned**
+
+
+In brief, your mother is crazed, unable to remain composed. She is blind, has no guide, and stumbles with every step as she approaches a frightful precipice. If she cannot place hope in her child.. in who else could she place hope?
+
+Likewise, the madness of the afflictions disturbs the peace of mind of living beings, your mothers. Thus they are crazed because they have no control over their lives. They lack the eyes to see the paths to higher birth and certain goodness.
+
+They have no true teacher, who is a guide for the blind. They stumble because their wrongdoing cripples them at each moment. When these mothers see the edge of the precipice of cyclic existence in general and the miserable realms in particular, they naturally take hope in their children, and their children naturally have the responsibility to get them out of the situation.
+
+Therefore, with this in mind, repay your mothers kindness by definitely causing them to emerge from cyclic existence.
+
+```
+Crazed by the afflictions, blinded by ignorance,
+Stumbling with each step
+On a path with many a precipice,
+You and others are always subject to sorrow--
+All beings have similar feelings.
+
+Shantideva
+```
+
+*although it is said it is wrong to look for others faults, and it is wonderful to notice even a single virtue, it is appropriate to consider how others are helpless*
 
 
 
 
 
 
-
-
+.. pre 42
 
 
 
