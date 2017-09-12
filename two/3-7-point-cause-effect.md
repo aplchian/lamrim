@@ -169,9 +169,196 @@ Shantideva
 
 
 
+## 2 The Development of the attitude of being intent on others' welfare
+
+This has 3 parts:
+
+1. The cultivation of love
+2. The cultivation of compassion
+3. The cultivation of wholehearted resolve
+
+### (a) The cultivation of love
+
+In order to understand the cultivation of love you must know the following topics:
+
+- **object of love** - living beings who do not have happiness 
+- **subjective aspect** - thinking *how nice it would be if beings were happy*, *may they be happy*, and *I will cause them to be happy*
 
 
-.. pre 42
+as for the benefits of love:
+```
+Always offering to superior beings
+As many countless offerings
+As there are in billions of lands does not equal
+A portion of the benefit of a loving attitude
+
+King of Concentrations Sutra
+```
+
+It says that the benefit of love has far greater merit than continuously making vast offerings to the highest recipients [buddhas, and bodhisattvas]. 
+
+```
+To offer 300 small pots of food
+Even three times a day
+Does not equal a portion of the merit
+Of a fraction of an instant of love
+
+Even if you are not liberated through love
+You will attain its 8 good qualities:
+Deities and humans will love you,
+They will also protect you.
+
+You will have joy and much physical pleasure;
+Poison and weapons will not harm you.
+You will attain your aims effortlessly,
+And be reborn in the world of brahma
+
+Nagarjuna - Precious Garland
+```
+
+If you have love, deities and humans will love you and will naturally gravitate towards you. 
+
+Moreover, the conqueror defeated mara's armies with the power of love, so love is the supreme protector and so forth.
+
+**Although love is difficult to cultivate you must strive to do so**
+
+The *Comendium of Trainings* say that you should think wholeheartedly about the verse from the *Sutra of Golden Light*. It says that you should atlas recite and meditate on the following verse from this sutra
+
+```
+Through the sound of the sacred Golden Light's great drum
+May the sufferings of miserable realms, the suffering brought on by the Lord of Death,
+The sufferings of poverty, and all suffering be extinguished
+In the three realms of the universe of three billion world systems
+
+Sutra of Golden Light
+```
+
+**The stages of cultivating love are as follows**:
+
+1. cultivate love towards friends
+2. cultivate love for persons you are neutral towards
+3. cultivate love towards your enemies
+4. cultivate it gradually toward all beings
+
+**The way to cultivate love is as follows**
+
+Just as you can develop compassion once you have repeatedly though about how living beings are made miserable by suffering, develop love  by thinking repeatedly about how living beings lack happiness, both contaminated and uncontaminated. When you become familiar with this, you will naturally wish for beings to be happy. In addition, bring to mind various forms of happiness and then offer them to living beings.
+
+
+
+### (b) The cultivation of compassion
+
+In order to understand the cultivation of compassion you must understand the following topics:
+
+- **object of compassion** - living beings who experience misery through any of the three types of suffering
+- **subjective aspects** - thinking "How nice it would be if living beings were free from suffering", "May they be free from suffering", and "I will cause them to be free from suffering"
+
+**steps to cultivating compassion**:
+
+1. cultivate it towards friends
+2. cultivate it towards those who you have neutral feelings towards
+3. cultivate it towards enemies
+4. when you have equal compassion for your enemies and friends, cultivate it gradually toward all living beings in the 10 directions
+
+
+Kamalashila set out this way of gradually cultivating impartiality, love, and compassion while distinguishing specific object of meditation. It is an extremely important point. 
+
+When you sustain this practice in meditation, you will generate these attitudes correctly, whether you are dealing with individuals or a group.
+
+
+**The way to cultivate compassion is as follows**
+
+Consider how these living beings -  your mothers - experience general and specific sufferings after falling into cyclic existence. 
+
+If you have developed an awareness of your own general and specific suffering by training in the path of a person of medium capacity, you will assess your own statute and cultivate compassion toward others. By following this method you will easily generate great compassion. Considering your own suffering creates the determination to be free. Thinking about others sufferings creates compassion. However, if you do not first consider your own suffering, you will not reach the key point of the practice.
+
+These are just general examples on how to meditate, intelligent people should meditate on the 108 sufferings that are observed with compassion, which are explained in the Bodhisattva levels.
+
+It is said that bodhisattva's thoughts of suffering during their cultivation of compassion are more numerous than sravakas thoughts which perceive suffering with an attitude of disenchantment. If you reflect from limitless viewpoints on how beings lack happiness and have suffering you will develop much love and compassion. **If you think about this for a long time your love and compassion will be strong and steady**
+
+After you have thoroughly distinguished the objects of meditation according to the previous explanations -- how compassion is the root , how development of the spirit of enlightenment is the entrance to the Mahayana, and so forth -- you must then analyze these explanations with discerning wisdom and elicit the experience produced after sustaining them in meditation. You will not achieve anything with the unclear experiences that come when you make a short, concentrated effort without precisely clarifying the topic with your understanding. Know that this is true for other kinds of practice as well. 
+
+Kamalashilas gives the measure for the development of compassion:
+
+```
+When you spontaneously feel compassion which has the subjective wish to completely eliminate the sufferings of all beings -- just like a mother's wish to remove her dear child's un happiness  -- then your compassion is complete and is therefore called great compassion.
+
+Kamalashila - Stages  of Meditation
+```
+
+When you spontaneously feel compassion for all beings commensurate with a mother's compassion for her very dear and small suffering child, then you have completely perfect great compassion. Through this, understand the measure for the development of great love as well.
+
+```
+When you have committed yourself to being a guide for all living beings by conditioning yourself to great compassion, you effortlessly generate the spirit of enlightenment which has the nature of aspiring to unexcelled perfect enlightenment. 
+
+Kamalashila - Stages  of Meditation
+```
+
+Great compassion is necessary cause for developing the aspirational spirit of enlightenment. 
+
+Many books say that the excellent conquerors children train in the spirit of enlightenment for many eons, holding it as their most important practice. So what need is there to mention that it could be attained by those who have nothing more than a superficial understanding. **So, you must hold the training in the spirit of enlightenment as the core instruction and then sustain it in meditation.**
+
+**After you have trained your mind by thinking of the benefits, by practicing the 7 branches of worship, by going for refuge, and after you have come to understand the trainings, then you develop the desire to maintain the spirit of enlightenment.**
+
+In order to progress on the path you must go on increasing both: your knowledge of emptiness and compassion.
+
+
+### (c) The cultivation of wholehearted resolve
+
+At conclusion of meditating on love and compassion think, "Alas, these dear living beings for whom I feel affection are deprived of happiness and tormented by suffering; how can I provide them happiness and free them from suffering?" Thinking in this way, train your mind in atleast this thought in order to take on the responsibility to liberate living beings. At this point its not good enough to just have the thought "How nice it would be if the beings were free from suffering"... For, the thought that assume responsibility shows that you must develop the compassion and love which have the power to induce the resolve, "I will provide happiness and benefit to all living beings." 
+
+**It is very effective if you practice this continuously, being mindful of it in all of your physical activities during the period of post-meditation and so on, not just during the meditation session**
+
+```
+Cultivate this compassion toward all beings at all times, whether you are in meditative concentration or in the course of any other activity
+
+Kamalashila - Stages  of Meditation
+```
+```
+Since beginning less time the tree of the mind
+Has been moistened with the bitter juice of the afflictions
+And you are unable to sweeten its taste.
+How could a drop of the water of good qualities effect it?
+
+Candragomin - Praise of Confession
+```
+
+You can't sweeten the root of a bitter tree with just a drop of sweetener. Similarly, the mind stream which has been infused with wince beginning less time with the bitter afflictions will not change at all from just a short cultivation of good qualities of love, compassion, and so forth. Therefore you must sustain your meditation continuously.
+
+
+## Training the mind to be intent on enlightenment
+
+Once you have been inspired by the aforementioned process and have seen that you need enlightenment for the sake of others welfare, you develop the wish to attain it. However, this is not enough:
+
+First, increase your faith as much as possible by contemplating the good qualities of the Buddhas body, speech, mind, and enlightened activities as explained in the section on going for refuge. 
+
+Then, as it is taught that faith is the basis of aspiration, develop the desire to attain those good qualities from the depths of your heart and induce a certainty that is absolutely necessary to attain omniscience even for your own welfare. 
+
+Although there are many causes for the development of the spirit of enlightenment, it is most special to develop it on your own, overcome by compassion.
+
+
+## Identifying the spirit of enlightenment, the fruit of the training
+
+The general definition of the spirit of enlightenment follows the meaning of that given in the *Ornament for Clear Knowledge* - The development of the spirit of enlightenment is the desire for perfect enlightenment for others welfare, cited earlier.
+
+**With respect to its subdivision, The Way of the Bodhisattva follows the Array of Stalks Sutra says that it is both aspirational and engaged.**
+
+```
+Just as one distinguishes
+Between wishing to go and going,
+Similarly the learned should understand the division
+Of these 2 in accordance with this sequence
+```
+
+**Aspiration** - either "May I become a buddha" or "I will become a buddha" for the sake of all beings and that as long as you have not take the bodhisattva vows it is the aspirational spirit that is present, whether or not you are training in the deeds of generosity, etc. Once you have taken the vows, the spirit present is the engaged spirit of enlightenment.
+
+```
+The aspirational spirit of enlightenment is the initial intent, "May I become a buddha in order to benefit all beings." The engaged spirit is present once you have taken the vows and engaged in accumulating the collections of merit and sublime wisdom.
+
+Kamalashila - Stages  of Meditation
+```
+
+There are many arguments over this, but I will not elaborate on them here.
 
 
 
