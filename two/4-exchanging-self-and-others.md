@@ -113,3 +113,45 @@ Thus Santideva indicates that self and other are merely posited in relation to a
 #### 2.
 
 pg 54
+
+
+## Summary
+
+**1. Benefits of cherishing others and faults of not exchanging self and others:**
+
+being self centered is the door to all degenerations and being other centered is the basis of all excellence
+
+**2. The ability to exchange self and other if you accustom your mind to do so:**
+
+You can actually generate it once you have become accustom to it
+
+**3. The stages of meditating on how to exchange self and other.**
+
+The view is to want to remove others suffering while disregarding your own happiness.
+
+There are 2 obstacles: 
+
+1. You make a categorical difference between yourself and other. Seeing them as totally different. **Remedy: Self and other are merely posited in relation to a particular reference point and do not essentially exist.** 
+2. You think "I will not make an effort to dispel others suffering because others suffering does not harm me." **Remedy: This is short sited, like not gathering wealth in your youth because your suffering of old age does not harm you in your youth.**
+
+**Qualm**: self and other are different continuum, like hand and foot are, therefore they are no the same as self and other. **Remedy:** The 'self' of yourself and the 'self' of other must be posited to a continuum or collection, so self and other are not established by way of independent existence.
+
+**Then meditate as follows:**
+
+Think about how self-cherishing has been harming you for eternity. You have been acting the same way all this time and what has it brought you? only suffering. If you had done the opposite you would be enlightened by now.. so now see that as the true and exchange self and other. 
+
+See everything you do and everything you own as for others. 
+
+Develop an attitude cherishes others to the degree which you previously cherished yourself. `Cherish others as you do yourself.`
+
+To produce this attitude you must see how beings have been kind to you and recognize that they help you.
+
+Think about how to attain buddhahood you need to perform the bodhisattva deeds, and this requires beings.. so they allow you to attain enlightenment.
+
+Also, all the suffering has come from harming sentient beings.
+
+You should not for an instant be attached to your own welfare.
+
+
+
+
