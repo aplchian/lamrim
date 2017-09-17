@@ -218,13 +218,13 @@ Example:
 
 It is the same as planting a seed in the garden.  You can plant a seed in the fall and it will lie dormant right through the winter. Then in the spring when the ground warms up and it rains, it will sprout. It was rendered suitable to be actualized by being planted(projected) into the ground. If you hadnt put the seed there, then no mattter how much moisture and warmth you put there, you would have no sprout. 
 
-**The actualized effects, birth, ageing, and death are factors that have already been actualized -- they are fully manifest, fully functioning, and therefore conditions for suffering in a current lifetime.
+\*\*The actualized effects, birth, ageing, and death are factors that have already been actualized -- they are fully manifest, fully functioning, and therefore conditions for suffering in a current lifetime.
 
 Every causaul relationship has these 2 stages, requiring both a primary **cause** and a secondary actualizing **condition** .. **Causes and Conditions!** 
 
 > 
-> Among the 12 factors, how many are included in the truth of suffering and will become sufferings in the current life? Two: birth and ageing and death. How many are included in the truth of suffering but will only become suffering at a later time? Those that remain in a state of potentia, from resultant consciousness up to feeling.   
-> 
+> Among the 12 factors, how many are included in the truth of suffering and will become sufferings in the current life? Two: birth and ageing and death. How many are included in the truth of suffering but will only become suffering at a later time? Those that remain in a state of potentia, from resultant consciousness up to feeling.  
+
 > -Asanga - Levels of Yogic Deeds
 > 
 
@@ -253,13 +253,13 @@ Tsongkhapa says that projecting causes and projected effects should be understoo
 3. How are they projected? By means of instilling in the causaul consciousness the subtle propensities or karmic seeds. Ignorance creates the formative activity of good or bad karma. That karma instills in the consciousness a subtle seed or propensity to ripen when it meets the necessary conditions. Before the karma was created, the potential was not there. Karma has left this new potential on the conciousness -- **That is how the factors are projected**
 4. The meaning of 'projected' is that those factors that are projected are rendered suitable to be actualized and to manifest when the actualizing causes are met.
 
-## The Actualizing Causes and Actualized Effects 
+## The Actualizing Causes and Actualized Effects
 
 The actualizing causes can be understood by meands of three points.
 
 1. What does the actualizing?  The main actualizing cause is grasping, which has craving as its own cause. Both of these are types of desire, but grasping is desire that is intesified to the point where it has the power to bring its result immediately. The craving form of desire arises over and over again, getting stronger and stronger until it turns into grasping, with the power to bring forth the result.
-  - The actualizing causes are described as three: craving, grasping, existance. Earlier we describer existance as a final, actualzing karma. Here, in the context of this explanation, existance is not treated as some new karma. The emphasis here is on the potential of the projected karmic seed. When it meets the warmth of craving and grasping and it becomes ready to bring for its fruit.  That very actualized seed -- that empowered potential ready to ripen into its result is called existance, the 10th factor.
-  - There are these 2 modes of explaining the 10th factor. Its true that at the time of death a virtuous or non virtuous action arises that combines with grasping to actualize the seed. In our earlier explanation that karma was referred to as existance. But this explanation only mentions craving and grasping as the actualizing causes, and according to this mode of explanation existance is defined as that fully potentiated seed itself.
+  2. The actualizing causes are described as three: craving, grasping, existance. Earlier we describer existance as a final, actualzing karma. Here, in the context of this explanation, existance is not treated as some new karma. The emphasis here is on the potential of the projected karmic seed. When it meets the warmth of craving and grasping and it becomes ready to bring for its fruit.  That very actualized seed -- that empowered potential ready to ripen into its result is called existance, the 10th factor.
+  3. There are these 2 modes of explaining the 10th factor. Its true that at the time of death a virtuous or non virtuous action arises that combines with grasping to actualize the seed. In our earlier explanation that karma was referred to as existance. But this explanation only mentions craving and grasping as the actualizing causes, and according to this mode of explanation existance is defined as that fully potentiated seed itself.
 
 2. What is actualized? Birth, ageing, and death.
 3. How are they actualized? By meands of empowering the subtle karmic propensities that were instilled in the consciousness by the formative activity of karma. The second factor, karma, projected the subtle propensities of the projected factors on the consciosness some time in the past. Now these propensities are empowered to ripen, and bring forth their result by these actualizing causes.**This is what 'actualize' means -- to render the potentiality of the seed powerful enough to bring its result immediately.** Vasubhandhu wrote that the only actualized factor is birth itself, while aging and death demonstrate the faults of birth.
@@ -322,9 +322,9 @@ The causal factors-- projecting and actualizing causes are themselves merely imp
 
 **Once again we see how the 2 karmic factors, karma and existance, arise from the 3 afflictions (ignorance, craving, and grasping), and in turn give rise to the seven factors of suffering (consciousness, name and form, 6 sense bases, contact, feeling, aging, and death). As you experience the pleasure and discomfort of those resultant factors, other affilictions such as attachment and hostility, emerge in response. They in turn set in motion another round of actions -- one set of results instigates yet another set of causes. Here again we see how the cause of all cyclic existance is karma and the affilictions. Again we see how the cycle -- affliction causing karma, causing experience, causeing affliction, perpeturates itself; cause and effect drives the wheel of life, turning it round and round in perpetual motion**
 
-> From the three arise the two, (ignorance, craving, grasping => karma, existance)
-> From the two, seven arise, (karma, existance => all else)
-> And from the seven three arise --(all else => ignorance, craving, grasping)
+> From the three arise the two, (ignorance, craving, grasping =\> karma, existance)
+> From the two, seven arise, (karma, existance =\> all else)
+> And from the seven three arise --(all else =\> ignorance, craving, grasping)
 > That is the wheel of life, going around, and around, and around 
 > 
 > -Nagarjuna 'Heart of Dependent Arising'
@@ -384,7 +384,7 @@ Nagarjuna opened his fundamental treatise with the following dedications:
 
 
 
-We are talking here about building the most foundation of all future progress on the path --  the thought of renunciation. This thorugh grows naturally out of seeing the faults of cyclic existance from many different points of view.
+##### We are talking here about building the most foundation of all future progress on the path --  the thought of renunciation. This thorough grows naturally out of seeing the faults of cyclic existence from many different points of view.
 
 The thought of renunciation is the foundation of all further progress on the pth, and understanding dependent origination is the methods to produce that thought.
 

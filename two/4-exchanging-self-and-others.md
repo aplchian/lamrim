@@ -85,12 +85,12 @@ Shantideva's statement above that says `you must exchange your own happiness for
 
 **There are 2 obstacles to training in this attitude of exchanging self and other:**
 
-####  1. You make a categorical differentiation between people who are happy or suffering -- yourself and others 
+#### 1. You make a categorical differentiation between people who are happy or suffering -- yourself and others
 
 making them as a different as blue and yellow. Then you accomplish your happiness and remove your suffering because you think of them as 'mine', and you neglect others happiness and suffering because you think of them as 'belonging to other'.. 
 
-**therefore, the remedy to this to not make a categorical distinction between self and other 
-as being essentially different. Rather, understand that self and other are mutually dependent such that you are aware of self, you are aware of other... and when you are away of other you are aware of self.**
+\*\*therefore, the remedy to this to not make a categorical distinction between self and other 
+as being essentially different. Rather, understand that self and other are mutually dependent such that you are aware of self, you are aware of other... and when you are away of other you are aware of self.\*\*
 
 ex. It is like being aware of near mountains and distant mountains. Relative to you being here, you think of a mountain there in the distance as being a distant mountain, yet when you go to this distant mountain, you think of it as a near mountain. So, the awareness of self and other is not like the awareness of blue.. regardless of what color blue is related to .. its always blue.
 
@@ -151,7 +151,6 @@ Think about how to attain buddhahood you need to perform the bodhisattva deeds, 
 Also, all the suffering has come from harming sentient beings.
 
 You should not for an instant be attached to your own welfare.
-
 
 
 
