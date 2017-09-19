@@ -129,6 +129,7 @@ This is the mistaken view that all realists have in common in relation to Madhya
 **As a subjective mind, it needs an object. The chittamantra’s view of the mind would be an isolated thing not about relate with anything, because they view the mind as real. There would be no grasping and fixation. So everyone would already be enlightened**
 
 ### 29.
+**As a subjective mind, it needs an object. The chittamantra’s view of the mind would be an isolated thing not about relate with anything, because they view the mind as real. There would be no grasping and fixation. So everyone would already be enlightened**
 
 This is a sharp argument to the Chittamatrans
 
@@ -162,4 +163,97 @@ As you are seeing the truth as it is. Just seeing it. There is no chance for ign
 In the path of seeing you find the view. And in the path of meditation you familiarize yourself with that and overcome the habit, and obscurations that sort of lingers. First you remove the emotional obscurations and some cognitive, then you purify the cognitive obscurations. At the end of the 10th bhumi you have purified the cognitive and emotional obscurations together. 
 
 **First it is good to resolve all of your questions with the contemplations. Then once you have the understanding it is important to rest and let it be. There is no work to be done. The realization is just seeing what is with no grasping or fixation, after they have subsided. The nature only dawns because you are not fidgeting with it.**
+
+## Pt. 2 - Talk 5 9-17
+
+### 33.
+90% of you habit is holding onto things as real. So it works against that.
+
+We hold onto life as real, so then we fear death. If you understand that life is illusory you wouldn’t fear death because you wouldn’t see death as the destruction of life. You relate to it as illusory.
+
+All of our experiences of suffering are from the point of the Madhyamikas, since in the dream, you are asleep.. the loss of the child you will feel it, when you wake up, when the child wasn’t born in the first place there won’t be a loss. In this way, when one wakes up from the duality and holding onto things as real, there is no pain to be felt, because pain is the byproduct of the ignorance. 
+
+
+### 34.
+
+In the absolute, since you have not found existence, you haven’t found non-existent. From the non duality state you can’t say *there isn’t*.  The nature as it is, is self-illuminating and free of mental construct. 
+
+```
+`The Buddhas say that voidness
+Is the banishment of all assertion;
+Those who ‘have a view’ of voidness,
+Are barred, they say, from its accomplishment
+
+Nagarjuna
+```
+`
+### 35.
+*How does the Buddha benefit, if all duality has been exhausted? The concept of endeavoring for the sake of others cannot occur*
+
+The Buddhahood brings benefit through the effort the buddha has applied and the strong aspiration and dedication of merit on behalf of the beings. 
+
+Everything is not linear, so its a mystery how everything works. Cause and effect is all magical. That is how it works. Observable, but not explainable. 
+
+There is no concept of endeavor, yet the activity occurs for the welfare of beings.
+
+If Buddha is to be with the intention/conception .. it becomes less reliable for the buddha to be of benefit in this profound way, because then it asserts a self. Self is less reliable, than the nature itself working.
+
+### 36.
+Chandrakirti has the example of the potters wheel.
+
+The question is, does it need a constant application of effort.
+
+### 37.
+
+### 38.
+If the Buddha doesn’t have a conceptual mind, the buddha becomes inanimate, how could offering produce merit. If to an inanimate object like a stupa, you could accumulate merit, because it is holy. It has the power to accumulate merit. Karma is very subtle.
+
+Like for example how the medicine works on your illness. For the patient is ignorant how it works. 
+
+### 39.
+
+## Proofs of the Supremacy of the Mahayana
+
+### 40.
+A true shravaka path must have a view of some emptiness. Without this, egolessness of the self will be difficult to obtain. 
+
+`Parchay may lam` - When the understanding is fighting the illness, like when the the antibodies are fighting the illness. You apply the realization has an antidote to the illness. - the stage of contact
+
+`nam dro lam` - when antidote has won - the stage of victory
+
+this is the`drupa`  - practice
+
+The madhyamikas are saying that you can’t have a deep understanding of the 4 noble truths without the understanding of emptiness. For ex. the self is based on the skhandas,so when you see the emptiness of the skhandas, the selflessness is realized. As long as you cling to the skhandas you are going to have a sense of self. 
+
+There is some disagreement here on the level of realizations that the shravakas need to have, but they all agree that there needs to be some realization of the emptiness of the skhandas for the shravakas.
+
+Je Rinpoche says all for areas realize tutel.  Mipham says that they realize the gross to be empty, but not the subtle, but somehow it serves the base to realize the egoless of the self. 
+
+### 41.
+
+But the shravakas don’t accept the scriptures just sited. They reject the scriptural authority of the Mahayana.
+
+They do this by asking first “How do you establish your scriptures as the Buddha’s words?”
+
+The Mahayana agrees that all Shravakas teaching are buddhas teachings. But for the moment, they challenge them. 
+
+### 42.
+
+So they give 4 reasons here that they think will verify the authenticity of the hinayana teachings. The Mahayana says that yes this is true. But we also have the same reasons!
+
+If by 2 parties agree on something that makes it true.. that would mean even non-buddhist doctrines are true.
+
+### 43.
+
+### 44.
+It is going to be hard for shravakas to achieve such a high status because as they themselves admit that they do not have a deep understanding of emptiness. 
+
+The Shravakas are in perfect agreement about the need to realize no-self, but they do not consider non-self and emptiness to be the same.
+
+We cling to the self based on skhandas, and we cling to the skhandas based on parts. When we know that there is not parts, we know there is no skandas, and we know when there is not skhandas there is no parts. 
+
+On
+
+
+
 
