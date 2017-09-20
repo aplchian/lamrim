@@ -46,6 +46,16 @@
 					<integer>3</integer>
 				</dict>
 			</dict>
+			<key>Training in the Mahayana Precepts and Perfections.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527556674.18466198</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>7</integer>
+				</dict>
+			</dict>
 			<key>stages-of-person-of-great-capacity.md</key>
 			<dict>
 				<key>lastModification</key>
@@ -62,6 +72,9 @@
 	</dict>
 	<key>sheetClusters</key>
 	<array>
+		<array>
+			<string>Training in the Mahayana Precepts and Perfections.md</string>
+		</array>
 		<array>
 			<string>An Introduction To The 6 Perfections.md</string>
 		</array>
@@ -87,7 +100,7 @@
 		<key>sheetClusters</key>
 		<dict>
 			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-			<integer>4</integer>
+			<integer>8</integer>
 		</dict>
 		<key>sheetOrder</key>
 		<dict>
