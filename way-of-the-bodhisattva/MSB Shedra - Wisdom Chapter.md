@@ -252,8 +252,63 @@ The Shravakas are in perfect agreement about the need to realize no-self, but th
 
 We cling to the self based on skhandas, and we cling to the skhandas based on parts. When we know that there is not parts, we know there is no skandas, and we know when there is not skhandas there is no parts. 
 
-On
+Cognitive obscuration is a duality. Like in generosity thinking you, the object, and subject are different. This dualistic cognitive obscuration prevents one from seeing the suchness. This prevents one from reaching the enlightened state.
 
+### 45.
+
+Since there is only one ultimate nature, there is only one buddhahood. Shravakahood and Pratyekabuddhahood is just a resting point for the time being. Since they haven’t overcome the ignorance completely, they will have to eventually wake from that state and overcome the ignorance completely.
+
+Shravakas say that merely overcoming afflictions is enough for nirvana and there is no more bondage. This is contradicted by Maudalyana who was free from afflictions, but suffered nonetheless from past karma.
+
+We are talking about the arhat with the remaining is not a final stage. 
+
+### 46 / 47 / 48.
+
+The mahayana say, well even arhats with no remainder.. compared with the buddha some didn’t know where their mother was born. Great arhats, in comparison to the buddha exhibited some marigpa, and some ignorance compared to the buddha. 
+
+Still that chain of not knowing will create some non afflictive nidanas. Until you get rid of all ignorance, it won’t be final. 
+
+They have a non-afflictive craving. Craving arises from feeling, and even arhats have feeling.
+
+As long as you yourself have not merged into the absolute nature, there will be birth of a subtle body. When they give birth like this the buddha will prophecies and exhort them to the mahayana and they will achieve this soon. 
+
+Their minds are still oriented toward conceptuality and are attached to ideas such as ‘Samsara is to be abandoned’ and ‘Nirvana is to be sought’, they are not in a state of perfect peace free from conceptuality.
+
+
+### 49.
+
+The training of the 3 baskets is important to all buddhist. They think that because of the view of unrealness they reject them, but in reality they don’t.
+
+It’s only a reject of the path being real. 
+
+From the hinayana view the 5 effects of immediate retribution will have an effect no matter what, no purification.
+
+### 50.
+So much of the mahayana is in agreement, so it should be accepted.
+
+### 51.
+
+The Mahayana is hard to understand, so they just didn’t understand it. 
+
+### 52.
+
+Bodhisattva’s from the first bhumi on realize, that samsara is just a projection of ignorant mind, and it is not there, personally to experience, but nonetheless, what’s your personal experience is one thing, what is another experience who is in that, is another thing.
+
+Since others are suffering you could have great compassion. You could dwell in the samsara. And be like a lotus and be of benefit to others.
+
+If you don’t realize emptiness, with taking peace and pain as real you will not have equality in the mind and will be seeking.
+
+### 53 / 54.
+
+One should thus meditate on emptiness.
+
+Emptiness is the only remedy for emotional obscurations and cognitive obscurations. Those who wish to rid themselves of these 2 should meditate on emptiness. 
+
+### 55.
+
+There is nothing to be afraid of with emptiness. It brings about the complete pacification of all suffering, how could you be afraid of it?
+
+**Emptiness view does not negate any appearance or function, it only negates intrinsic reality, and this intrinsic reality one projects as self and phenomena is marigpa. This is what traps you. If you really want to overcome, you must understand emptiness. You shouldn’t be afraid, but embrace it.**
 
 
 

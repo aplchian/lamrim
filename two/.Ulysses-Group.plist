@@ -36,6 +36,16 @@
 					<integer>2</integer>
 				</dict>
 			</dict>
+			<key>9. Generosity.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527731874.33133501</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>11</integer>
+				</dict>
+			</dict>
 			<key>An Introduction To The 6 Perfections.md</key>
 			<dict>
 				<key>lastModification</key>
@@ -73,6 +83,9 @@
 	<key>sheetClusters</key>
 	<array>
 		<array>
+			<string>9. Generosity.md</string>
+		</array>
+		<array>
 			<string>Training in the Mahayana Precepts and Perfections.md</string>
 		</array>
 		<array>
@@ -100,7 +113,7 @@
 		<key>sheetClusters</key>
 		<dict>
 			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-			<integer>8</integer>
+			<integer>12</integer>
 		</dict>
 		<key>sheetOrder</key>
 		<dict>
