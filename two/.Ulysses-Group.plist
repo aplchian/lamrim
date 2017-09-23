@@ -2,10 +2,41 @@
 <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd">
 <plist version="1.0">
 <dict>
+	<key>childOrder</key>
+	<array>
+		<string>.New Filter.Ulysses_Public_Filter</string>
+	</array>
 	<key>resolutionData</key>
 	<dict>
+		<key>childOrder</key>
+		<dict>
+			<key>.New Filter.Ulysses_Public_Filter</key>
+			<dict>
+				<key>explicitUnassignment</key>
+				<true/>
+				<key>firstUnassignment</key>
+				<real>527814494.37834799</real>
+				<key>lastModification</key>
+				<real>527814494.37834799</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>3</integer>
+				</dict>
+			</dict>
+		</dict>
 		<key>sheetClusters</key>
 		<dict>
+			<key>10. How to Give.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527814597.70870298</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>25</integer>
+				</dict>
+			</dict>
 			<key>2-compassion-the-root-of-the-mahayana.md</key>
 			<dict>
 				<key>lastModification</key>
@@ -39,11 +70,11 @@
 			<key>9. Generosity.md</key>
 			<dict>
 				<key>lastModification</key>
-				<real>527731874.33133501</real>
+				<real>527814576.50732398</real>
 				<key>version</key>
 				<dict>
 					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-					<integer>11</integer>
+					<integer>24</integer>
 				</dict>
 			</dict>
 			<key>An Introduction To The 6 Perfections.md</key>
@@ -84,6 +115,7 @@
 	<array>
 		<array>
 			<string>9. Generosity.md</string>
+			<string>10. How to Give.md</string>
 		</array>
 		<array>
 			<string>Training in the Mahayana Precepts and Perfections.md</string>
@@ -110,10 +142,15 @@
 	<integer>1</integer>
 	<key>versioning</key>
 	<dict>
+		<key>childOrder</key>
+		<dict>
+			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+			<integer>3</integer>
+		</dict>
 		<key>sheetClusters</key>
 		<dict>
 			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-			<integer>12</integer>
+			<integer>26</integer>
 		</dict>
 		<key>sheetOrder</key>
 		<dict>
