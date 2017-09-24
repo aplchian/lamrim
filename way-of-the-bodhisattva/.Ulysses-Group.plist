@@ -40,6 +40,16 @@
 					<integer>27</integer>
 				</dict>
 			</dict>
+			<key>Wisdom.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527877814.93143201</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>28</integer>
+				</dict>
+			</dict>
 			<key>meditation-174-180.md</key>
 			<dict>
 				<key>lastModification</key>
@@ -54,16 +64,6 @@
 			<dict>
 				<key>lastModification</key>
 				<real>527358179.79477</real>
-				<key>version</key>
-				<dict>
-					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-					<integer>2</integer>
-				</dict>
-			</dict>
-			<key>wisdom.md</key>
-			<dict>
-				<key>lastModification</key>
-				<real>527358179.79477102</real>
 				<key>version</key>
 				<dict>
 					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
@@ -88,7 +88,7 @@
 			<string>meditation.md</string>
 		</array>
 		<array>
-			<string>wisdom.md</string>
+			<string>Wisdom.md</string>
 		</array>
 	</array>
 	<key>storeFormatVersion</key>
@@ -98,7 +98,7 @@
 		<key>sheetClusters</key>
 		<dict>
 			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-			<integer>27</integer>
+			<integer>28</integer>
 		</dict>
 	</dict>
 </dict>

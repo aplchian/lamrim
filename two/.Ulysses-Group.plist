@@ -27,6 +27,16 @@
 		</dict>
 		<key>sheetClusters</key>
 		<dict>
+			<key>1-stages-of-person-of-great-capacity.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527907598.77322102</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>27</integer>
+				</dict>
+			</dict>
 			<key>10. How to Give.md</key>
 			<dict>
 				<key>lastModification</key>
@@ -35,6 +45,16 @@
 				<dict>
 					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
 					<integer>25</integer>
+				</dict>
+			</dict>
+			<key>11-The Perfection of Ethical Discipline.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527980889.44467998</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>52</integer>
 				</dict>
 			</dict>
 			<key>2-compassion-the-root-of-the-mahayana.md</key>
@@ -67,6 +87,46 @@
 					<integer>2</integer>
 				</dict>
 			</dict>
+			<key>5-The Ritual For Adopting the Spirit of Enlightenment.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527907951.16276199</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>36</integer>
+				</dict>
+			</dict>
+			<key>6-Maintaining the Spirit of Enlightenment.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527908102.36558598</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>39</integer>
+				</dict>
+			</dict>
+			<key>7. An Introduction To The 6 Perfections.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527907872.958</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>30</integer>
+				</dict>
+			</dict>
+			<key>8-Training in the Mahayana Precepts and Perfections.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>527907802.70787102</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>29</integer>
+				</dict>
+			</dict>
 			<key>9. Generosity.md</key>
 			<dict>
 				<key>lastModification</key>
@@ -77,34 +137,32 @@
 					<integer>24</integer>
 				</dict>
 			</dict>
-			<key>An Introduction To The 6 Perfections.md</key>
+			<key>on.md</key>
 			<dict>
+				<key>explicitUnassignment</key>
+				<true/>
+				<key>firstUnassignment</key>
+				<real>527979577.92592102</real>
 				<key>lastModification</key>
-				<real>527373206.26633501</real>
+				<real>527979577.92592102</real>
 				<key>version</key>
 				<dict>
 					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-					<integer>3</integer>
+					<integer>49</integer>
 				</dict>
 			</dict>
-			<key>Training in the Mahayana Precepts and Perfections.md</key>
+			<key>u@- Untitled.md</key>
 			<dict>
+				<key>explicitUnassignment</key>
+				<true/>
+				<key>firstUnassignment</key>
+				<real>527980896.39898503</real>
 				<key>lastModification</key>
-				<real>527556674.18466198</real>
+				<real>527980896.39898503</real>
 				<key>version</key>
 				<dict>
 					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-					<integer>7</integer>
-				</dict>
-			</dict>
-			<key>stages-of-person-of-great-capacity.md</key>
-			<dict>
-				<key>lastModification</key>
-				<real>527373170.68322599</real>
-				<key>version</key>
-				<dict>
-					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-					<integer>2</integer>
+					<integer>55</integer>
 				</dict>
 			</dict>
 		</dict>
@@ -114,20 +172,33 @@
 	<key>sheetClusters</key>
 	<array>
 		<array>
+			<string>on.md</string>
+		</array>
+		<array>
+			<string>11-The Perfection of Ethical Discipline.md</string>
+			<string>u@- Untitled.md</string>
+		</array>
+		<array>
+			<string>6-Maintaining the Spirit of Enlightenment.md</string>
+		</array>
+		<array>
+			<string>5-The Ritual For Adopting the Spirit of Enlightenment.md</string>
+		</array>
+		<array>
 			<string>9. Generosity.md</string>
 			<string>10. How to Give.md</string>
 		</array>
 		<array>
-			<string>Training in the Mahayana Precepts and Perfections.md</string>
+			<string>8-Training in the Mahayana Precepts and Perfections.md</string>
 		</array>
 		<array>
-			<string>An Introduction To The 6 Perfections.md</string>
+			<string>7. An Introduction To The 6 Perfections.md</string>
 		</array>
 		<array>
 			<string>2-compassion-the-root-of-the-mahayana.md</string>
 		</array>
 		<array>
-			<string>stages-of-person-of-great-capacity.md</string>
+			<string>1-stages-of-person-of-great-capacity.md</string>
 		</array>
 		<array>
 			<string>3-7-point-cause-effect.md</string>
@@ -150,7 +221,7 @@
 		<key>sheetClusters</key>
 		<dict>
 			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-			<integer>26</integer>
+			<integer>55</integer>
 		</dict>
 		<key>sheetOrder</key>
 		<dict>

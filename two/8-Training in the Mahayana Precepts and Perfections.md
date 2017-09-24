@@ -1,5 +1,5 @@
 
-#  Training in the Mahayana Precepts and Perfections
+# 8. Training in the Mahayana Precepts and Perfections
 ## How to train in the Mahayana in general
 
 ### 1. Establishing the desire to learn the precepts of the spirit of enlightenment
@@ -7,7 +7,7 @@ First understand the precepts well, and then after you have trained in them, if 
 ### 2. Taking the vows of the conqueror’s children after establishing the desire to learn the precepts
  How to take the vows and how to guard agains fundamental transgressions are explained the Bodhisattva levels chapter on ethical discipline
 
-### 3. How to train after taking the vows 
+### 3. How to train after taking the vows
 All the precepts are included within the 6 perfections. The 6 perfections are thus the great condensation of the Bodhisattva path
 
 ### a. The Fixed Number of Perfections Based on High Status
@@ -32,7 +32,7 @@ With stabilization, and liberations, together with their basis.
 
 The Ornament for he Mahayana Sutras
 ```
-`
+\`
 ### c. The Fixed Number of Perfections Based on  perfecting the complete fulfillment of others aims
 
 ```
@@ -42,7 +42,7 @@ You fulfill others’ aims, which fulfills your own.
 
 The Ornament for he Mahayana Sutras
 ```
-`### d. The Fixed Number of Perfections Based on  their subsuming the entire Mahayana
+\`\### d. The Fixed Number of Perfections Based on  their subsuming the entire Mahayana
 
 ```
 `The entire Mahayana is summed up in
@@ -52,7 +52,7 @@ And the yogis free of discursiveness
 
 The Ornament for he Mahayana Sutras
 ```
-`
+\`
 ### e. The Fixed Number of Perfections in terms of the completeness of paths or methods
 
 1. generosity - not being attached to the resources that are your possessions is generosity, because you become free from attachment to your things by becoming habituated to giving them away
@@ -103,4 +103,3 @@ When you have a **generosity** that is disinterested in and unattached to resour
 Each preceding perfection is easier than the subsequent one to engage in and perform, so its is coarser than the subsequent one. 
 
 Because of their coarseness and subtlety, The perfections are taught in order.
-

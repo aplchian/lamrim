@@ -1,6 +1,6 @@
 # Wisdom
 
-## 1. 
+## 1.
 
 We have to transform / eliminate the ignorance into wisdom so that we can exit cyclic existence.
 
@@ -50,7 +50,7 @@ Toward the benefit of others
 
 This text^ also speaks of "emptiness with the essence of compassion", referring to the fact that, as the Buddha's and Bodhisattvas have proclaimed, the realization of emptiness occurs simultaneously with the birth of compassion. Out of compassion, emptiness is taught to others, so that all the suffering of oneself and others may be brought to nothing.
 
-## 2. 
+## 2.
 
 The conventional and absolute are of one essence.
 
@@ -70,7 +70,7 @@ The way of beings of things, their ultimate truth - is free from the extremes of
 
 From the view of the ultimate, the 2 are not cut off and separate from each other. "form is emptiness, emptiness is form. emptiness is no other than form, and form is no other than emptiness." 
 
-The **Dharmadhatu** is the appearance of union and emptiness and is beyond the extremes of misconception. It is inexpressible in thought and word, It is mind-transcending primordial wisdom,  self-cognizing awareness. It is the perfection of wisdom, the actual ultimate truth in itself. 
+The **Dharmadhatu** is the union of appearance and emptiness and is beyond the extremes of misconception. It is inexpressible in thought and word, It is mind-transcending primordial wisdom,  self-cognizing awareness. It is the perfection of wisdom, the actual ultimate truth in itself. 
 
 On the other hand, whatever the ordinary mind conceives and whatever languages expresses; all such things, which thus become an object of thought and word, if examined are found to be non-existant. They are empty, like mirages and it is never possible for them to withstand analysis.
 
@@ -89,7 +89,7 @@ No other image can express such a vision.
 But though this is the case, when speaking in ordinary terms of how Aryas rest in meditation it is quite alright to to speak in terms of subject and object, and to consider the Dharmadhatu as an object of knowledge.
 
 ```
-Muchness is unborn, and mind itself is also free from birth;
+Suchness is unborn, and mind itself is also free from birth;
 And when the mind is tuned to this, it is as though it knows the ultimate reality.
 For since you say that consciousness cognizes when it takes the aspect of a thing,
 It's right for us to speak in such a way.
@@ -100,7 +100,7 @@ It's right for us to speak in such a way.
 
 Saying that the ultimate truth is an object of knowledge in this view is from the standpoint of exclusion. This does not conflict with the earlier contention that the ultimate truth is not an object of knowledge -- and assertion made from the standpoint of detection (amounts to asserting that emptiness is a truly existent thing).
 
-## 3. 
+## 3.
 
 There are 2 types of perceivers:
 
@@ -132,8 +132,7 @@ When ordinary beings see a thing, they take it to be an absolute love, they woul
 
 The point at issue is that, when ordinary people perceive objects, they believe that they exist in just the way that they appear: perfectly real, and absolutely existent. They do not have the insight of Buddhist yogis, who understand that through objects appear, they are like mirages and do not exist truly. This is the point on with they disagree. 
 
-# 6. 
-
+# 6.
 
 
 
