@@ -25,6 +25,8 @@
 				</dict>
 			</dict>
 		</dict>
+		<key>countingGoal</key>
+		<real>528071846.37083203</real>
 		<key>sheetClusters</key>
 		<dict>
 			<key>1-stages-of-person-of-great-capacity.md</key>
@@ -55,6 +57,16 @@
 				<dict>
 					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
 					<integer>52</integer>
+				</dict>
+			</dict>
+			<key>12-The Perfection of Patience.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>528071911.46455002</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>58</integer>
 				</dict>
 			</dict>
 			<key>2-compassion-the-root-of-the-mahayana.md</key>
@@ -175,6 +187,9 @@
 			<string>on.md</string>
 		</array>
 		<array>
+			<string>12-The Perfection of Patience.md</string>
+		</array>
+		<array>
 			<string>11-The Perfection of Ethical Discipline.md</string>
 			<string>u@- Untitled.md</string>
 		</array>
@@ -218,10 +233,15 @@
 			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
 			<integer>3</integer>
 		</dict>
+		<key>countingGoal</key>
+		<dict>
+			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+			<integer>3</integer>
+		</dict>
 		<key>sheetClusters</key>
 		<dict>
 			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-			<integer>55</integer>
+			<integer>59</integer>
 		</dict>
 		<key>sheetOrder</key>
 		<dict>
