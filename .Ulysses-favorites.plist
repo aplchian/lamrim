@@ -3,11 +3,24 @@
 <plist version="1.0">
 <dict>
 	<key>order</key>
-	<array/>
+	<array>
+		<string>two/12-The Perfection of Patience.md</string>
+	</array>
 	<key>resolutionData</key>
 	<dict>
 		<key>order</key>
-		<dict/>
+		<dict>
+			<key>two/12-The Perfection of Patience.md</key>
+			<dict>
+				<key>lastModification</key>
+				<real>528162543.45560598</real>
+				<key>version</key>
+				<dict>
+					<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
+					<integer>54</integer>
+				</dict>
+			</dict>
+		</dict>
 	</dict>
 	<key>storeFormatVersion</key>
 	<integer>1</integer>
@@ -16,7 +29,7 @@
 		<key>order</key>
 		<dict>
 			<key>988eaffbc448b58fcd7082d30992e3a83fe08b8d121842167723bc56581c112e</key>
-			<integer>52</integer>
+			<integer>54</integer>
 		</dict>
 	</dict>
 </dict>
