@@ -356,6 +356,158 @@ Stop your anger and feel delight from the depths of your heart thinking: “In t
 
 Thinking like this from the depths of your heart you should stop anger and feel happy.
 
-#### 2. Stopping impatience with those who do three things to you — have contempt for you, or say offensive or unpleasant things to you.
+#### 2. Stopping impatience with those who do three things to you — have contempt for you, or say offensive or haunpleasant things to you.
 
-pg. 168
+Prevent your unhappiness thinking “Since the mind is not material, it cannot be directly harmed by others. While the mind is indirectly harmed by directly harming the body, the body cannot be harmed by contempt offensive speech, and unpleasant words. These harm neither body nor mind, so I should take delight.” When you prevent your unhappiness, you do not give rise to hostility. 
+
+```
+`Since the mind is not physical,
+No one can ever destroy it.
+It is strongly attached to the body
+And so it is harmed by physical suffering.
+
+Contempt, offensive speech,
+And unpleasant words
+Do not harm the body,
+Then why, mind, are you so angry?
+
+Shantideva
+```
+
+```
+`No matter what the 3 geshes heard, it was no different from speaking to dirt and rocks, so they remained happy. Since everyone nowadays reacts quickly to what is said, they become unhappy.
+
+Sharawa
+```
+
+```
+`Others dislike for me
+Does not devour me 
+In this or other lives.
+Why am I averse to it?
+
+Shantideva
+```
+
+#### Stopping dislike for harm doers’ attainments and delight in their troubles
+
+Contemplate as follows, “After I have generated the spirit of enlightenment for the sake of accomplishing all living beings’ benefit and happiness, I get angry at harm doers when they obtain happiness on their own. After I have said that I want all beings to obtain buddhahood, I get happy when harm doers get even minimal prosperity or honor. This is extremely contradictory.” 
+
+**You must eliminate your jealousy regarding any sort of attainment by other persons and design in it from the depths of your heart. Otherwise your spirit of enlightenment and the achievement of beings welfare and happiness is mere words.**
+
+Your malicious thoughts do no harm to your enemy, they only harm you. They lead only to your own suffering. Yet if such malice were to harm them, you should stop it completely.
+
+Take many approaches to stop your anger, because it is a very great fault.
+
+**These instructions provide the techniques for defeating your greatest enemy — anger. They involve arguing with your own afflictions and looking within yourself. **
+
+**When you analyze well and stop the anger with reasoning, it leaves an extremely stable latent propensity.**
+
+### Developing the patience of accepting suffering.
+
+3 parts:
+
+1.  The reason you must definitely accept suffering
+2. The way to develop acceptance
+3. A detailed explanation from the viewpoint of the bases
+
+#### 1.  The reason you must definitely accept suffering
+
+```
+The causes of happiness sometimes occur,
+Whereas the causes of suffering occur frequently.
+
+Shantideva
+```
+
+As you continually experience whatever suffering is appropriate to you, you must know how to bring it into the path. Otherwise, you either generate hostility or you become discouraged about cultivating the path.
+
+Some suffering will be caused by others, and some will be caused by your former karma. For the time being, you cannot dispel the suffering definitely produced by the power of former karma and immediate conditions. 
+
+**You must accept them when they arise, because:**
+
+1. If you do not do this, in addition to the basic suffering, you have the suffering of worry that is produced by your own thoughts, and then the suffering becomes very difficult for you to bear.
+2. If you accept the suffering, you let the basic suffering be and do not stop it, but you never have the suffering of worry that creates discontentment when you focus on the basic suffering.
+3. since you are using the methods to bring even basic sufferings on the path, you greatly lessen your suffering, so you can bear it. Therefore, it is very crucial that you generate the patience that accepts that suffering.
+
+#### 2. The way to develop acceptance
+
+2 parts: 
+
+1. Rejecting the idea that when suffering occurs, it is absolutely unpleasant
+2. showing that it is appropriate to accept suffering
+
+#### 1. Rejecting the idea that when suffering occurs, it is absolutely unpleasant
+
+If you can remedy a situation wherein suffering occurs, you do not need to feel that it is unpleasant. If you cannot remedy it, it is not helpful to find it unpleasant, so there is no need for, or effectiveness to, your displeasure; there is even a disadvantage. 
+
+**If you are very impatient, even a slight suffering is difficult to bear, whereas if you minimize your impatience, you can endure great suffering.**
+
+```
+If there is a remedy,
+Why be displeased?
+If there is no remedy,
+What is the use of being displeased?
+
+Shantideva
+```
+
+```
+I shall not be impatient with
+Heat, cold, wind, and rain,
+Illness, bondage, beatings, and so on;
+If I am, the harm increases.
+
+Shantideva
+```
+
+#### 2. showing that it is appropriate to accept suffering
+
+3 parts:
+
+1. Reflecting on the good qualities of suffering.
+2. Reflecting on the advantages of bearing suffering's hardships
+3. How it is not difficult to bear suffering if you gradually grow accustom to it, starting with the small.
+
+#### 1. Reflecting on the good qualities of suffering.
+
+Suffering has 5 good qualities:
+
+1. **the good quality of spurring you on to liberation** - if you had no suffering, you would not develop the determination to be free from it
+2. **the good quality of dispelling arrogance** - when suffering strikes you, it reduces your sense of superiority.
+3. **the good quality of causing you to shun sin** - when you experience painful feelings, they arise from non virtue, so if you do not want these effects, you must avoid their causes
+4. **the good quality of causing you to like cultivating virtue** - when you are tormented with suffering you desire happiness, and once you want it you must cultivate the virtue that causes it.
+5. **the good quality of producing compassion for those who wander in cyclic existence** - after you assess your own situation you think "Other beings suffer like this."
+
+From these 5, and from recognizing other good qualities on your own, train your mind to think "This suffering is a condition that I want!"
+
+```
+Since without suffering there is no determination to be free, 
+You mind, stay fixed!
+
+Shantideva
+```
+
+#### 2. Reflecting on the advantages of bearing suffering's hardships
+
+This has 2 parts:
+
+1. Reflecting on the crucial benefits, such as liberation, etc.
+1. Reflecting on the benefit of dispelling immeasurable suffering
+
+#### 1. Reflecting on the crucial benefits, such as liberation, etc.
+
+Repeatedly make your mind steadfast thinking, "I know that in the past, while passing through cyclic existence I suffered for the sake of trifling desires and minor needs, yet I discourages the many sufferings, undergoing a great deal of purposeless suffering that will in turn cause immeasurable suffering for me in future lives. Given this, now that I know that I am engaged in virtue that will accomplish immeasurable benefits and happiness for myself and others, it is appropriate that I accept suffering a trillion times more than before -- so of course I will accept sufferings smaller than that."
+
+After you think this way, uplift your mind and think: "Why am I not now bearing a suffering that achieves a great purpose? Although I am suffering, how excellent that I have found something like this to do." 
+
+Also think about how you have endured great suffering previously for mundane purposes like farming, business, and war.
+
+#### 2. Reflecting on the benefit of dispelling immeasurable suffering
+
+Reflect well on the benefits of short term suffering over long term suffering, thinking. "
+
+pg. 174
+
+
+
