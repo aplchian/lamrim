@@ -505,9 +505,112 @@ Also think about how you have endured great suffering previously for mundane pur
 
 #### 2. Reflecting on the benefit of dispelling immeasurable suffering
 
-Reflect well on the benefits of short term suffering over long term suffering, thinking. "
+Reflect well on the benefits of short term suffering over long term suffering, thinking. "A man who is to be executed is overjoyed when he is freed from execution by having merely his finger cut off. How excellent it would be if similarly, by means of this slight suffering of human hardship, I could permanently dispel the suffering of limitless cyclic existence in general and in particular the suffering of miserable rebirths such as the hells, etc." **If you do this well, you produce fearless courage with respect to hardship.**
 
-pg. 174
+```
+How is it unfortunate if a man who is to be executed
+Is freed from having his hand cut off?
+How is it unfortunate if by human suffering
+You are released from hell?
+
+Shantideva
+```
+
+#### C. How it is not difficult to bear suffering if you gradually grow accustomed to it, starting with the small
+
+```
+There is nothing whatsoever
+That does not become easier through habituation.
+So by becoming used to small harms
+You will bear great harms as well
+
+Shantideva
+```
+
+After you have conceived the armor-like thought to accept suffering, you gradually blend it with suffering, starting with small sufferings. When you do this, you steadily increase you capacity to accept suffering.
+
+```
+Once you have first grown used to small sufferings, you will become accustomed to the difficult and the very difficult. For example, just as all living beings have the idea that suffering is happiness through the power of conditioning, so you maintain the idea of joy whenever you experience suffering by becoming used to applying the idea of joy to these experiences.
+
+Shantideva Compendium of Trainings
+```
+
+```
+Daughter, in order to destroy all afflictions you should develop a min that is hard to defeat.
+
+Array of Stalks Sutra
+```
+
+**Thus, you need courage that is very firm and stable; you will not be able to accept suffering with a fragile mind**
+
+If you initially develop a significant degree of courage, even great suffering becomes helpful. Like warriors who are emboldened by the sigh of their blood.
+
+```
+Some seeing their own blood,
+Become more intrepid.
+Some, seeing others' blood,
+Fall unconscious.
+This comes from mind's fortitude
+Or from its timidity.
+
+Shantideva
+```
+
+### A Detailed explanation from the viewpoint of the basis
+
+Q: Given that one must accept the suffering that occurs, from where do these sufferings come and how does on accept them?
+
+A: There are 8 basis for accepting suffering:
+
+1. **Acceptance of suffering that is based on objects** - Robes, alms, bedding, seat, medicine, and necessities are objects that enhance pure conduct. Without displeasure and disappointment you accept the suffering that arises when these are given to you and you find them to be inferior or too few, or when they are given with disrespect or after long delay.
+1. **Acceptance of suffering that is based on worldly concerns** - The 9 worldy concerns are:
+loss, disgrace, blame, pain, disintegration, extinguishmnet, aging, sickness, the death of what is subject to death subsequent of its decay. After you have analyzed the sufferings based on all or each of these, you accept the suffering.
+1. **Acceptance of suffering that is based on physical activity** - the 4 physical activities are moving around, standing, sitting, and lying down. When all day and all night you purify your mind of obstructions by means of moving around and sitting you are accepting the sufferings that arise from them; however you do not relax on a couch, chair, or bed of straw or leaves when it is not the time to do.
+1. **Acceptance of suffering that is based on upholding the teachings** - The teachings are upheld in 7 ways: 1. **worshipping and serving the 3 jewels** 2. **worshipping and serving the guru** 3. **understanding the teachings** 4. **teaching extensively to others what you have understood** 5. **reciting its praises in a loud clear voice** 6. **correctly reflecting on it in solitude** 7. **cultivating meditative serenity and insight that is imbued with yogic attention** -- When you strive at these you accept the suffering that arises.
+1. **Acceptance of suffering that is based on living by begging** - the seven aspects of living by begging are - 1. **you experience having an ugly appearance due to shaving off your hair, beard, etc.** 2. **you experience wearing cloth that is patched together and is of poor color** 3. **you live by restraining yourself from the conduct of worldly persons and act in a way other than they do.** 4. **you give up farm work, etc and then live by getting material goods from others, so you live in dependence on others** 5. **since you do not employ material gain, you seek things such as robes, etc from others as long as you live** 6. **since you give up sexual intercourse, you turn away from human desires until you die.** 7. **since you give up dancing, laughter and the like, you turn away from human merriment until you die in order to give up friends, intimate companions, childhood friends, and the like, as well as pleasures and enjoyments.** You accept the suffering that comes about because of these.
+1. **Acceptance of suffering that is based on fatigue due to perseverance** - You accept the suffering that arises from mental and physical fatigue, hardship, and disturbance while you are persevering at cultivating virtues.
+1. **Acceptance of suffering that is based on acting for the welfare of living beings** - There are 11 activities for other welfare; you accept the sufferings that occur because of these... see note 286 for these
+1. **Acceptance of suffering that is based on current tasks** - You accept the suffering that arises from from tasks for a renunciate, such as the work associates with the begging bowl, robes, and so forth, or from the tasks for a householder, such as faultless work on a farm, in business, as a government employee, etc.
+
+Even if you are stricken with any of the sufferings that arise in dependence on these 8 basis, you do not give up your joyous perseverance at each. You act for the sake of enlightenment, joyfully, not letting such sufferings become an obstacle that causes you to turn back once you have set forth.
+
+### Developing the patience of certitude about the teachings.
+
+The patience of certitude about the teachings means generating the forbearance of conviction. It has 8 objects:
+
+1. **The object of faith** - this is the good qualities of the 3 jewels
+1. **The object to be actualized** - This is the reality of the 2 selflessnesses
+1. **The desired object** - Thi is the great powers of the buddhas and bodhisattvas, of which there are 3 -- the power of superknowledges, the power of the 6 perfections, the power which is innate
+1. **The object to be adopted** - This is wanting both the cause -- good deeds, and the affect of these good deeds
+1. **The object to be discarded** - This is wishing to avoid both the cause - misdeeds, and the effects of the deeds
+1. **The object of meditation that is the goal to be achieved** - This is enlightenment
+1. **The object of meditation that is the method for achieving the goal** - This is the path of training in the spirit of enlightenment
+1. **The object of subsequent practice through study and reflection** - Drolungpa says that this refers to the province of what is to be known, such as impermanence and so forth. Asanga in the `Power Lineage Chapter` says this is the sublime teaching - the 12 branches of scripture and so forth -- so I think you have to take it as being this.
+
+**The way to have conviction is to become certain about these objects just as they are, and then to think about them again and again apprehending them without conflict**
+
+These 8 bases are in accordance with the passages in the Bodhisattva levels. There is extensive coverage there of the patience of certitude about the teachings.
+
+### How to practice
+
+When practicing any kind of patience, you practice it in association with the 6 supremacies and all 6  perfections. These are the same as in the earlier explanation, except the generosity of patience means to establish others in patience.
+
+### A Summary
+
+The recollection and cultivation of the spirit of enlightenment -- the basis of the bodhisattva deeds -- is the root of the wish to establish all beings in patience wherein they have extinguished the contaminations. After you steadily increase this spirit, aspire to practice the patience of those at high levels and then train your mind in it. 
+
+Distinguish the trainings for the patience of a beginning bodhisattva, and then learn these properly.
+
+If you transgress the boundaries as explained, you must make an effort to ammend this. If you neglect these trangressions at the time of practicing these trainings you will continually be tainted by many great misdeeds, and even in future lifetimes, your practice of the marvelous deeds of the bodhisattva will be extremely difficult.
+
+Seeing that the essentials of the path are supreme, practice right now what you can, and inculcate the intention to practice even those you now cannot. If you do this, as the it says in the `Question of Subahu Sutra`, you will bring the perfection of patience to completion with little difficulty and minor suffering.
+
+
+
+
+
+
+
 
 
 
