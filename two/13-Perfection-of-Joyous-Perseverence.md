@@ -377,7 +377,7 @@ You consider karma and its effects in general, and in particular, the causality 
 You must exhort yourself -- `I will have to meditate for many eons to purify myself of every single fault along with its latent propensity and to develop every single good quality to its fullest extent. Yet since I dont have even a fraction of the joyous perseverance needed to clear away faults or accomplish good qualities, I have pointlessly wasted my leasure.`
 
 
-### 2. Developing the power of steadfastness
+### 2. Developing the power of steadfastness (power of pride)
 
 **Developing the power of steadfastness mean that you bring to conclusion, without turning back, anything at which you joyously persevere.**
 
@@ -508,8 +508,55 @@ Shantideva
 
 Thus, stop expecting something from others and put on the armor of doing it alone. That is, be confident and think, "Unlike me, others cannot do it, I can do it." When you practice with this perspective, you are sure that you will defeat the afflictions -- that they will never defeat you -- and you consider that it would be a mistake to abandon your commitment after a while. **Train yourself until your mind is steadfast in the desire to finish everything to which you have committed yourself after you have carefully examined whether you can do it.**
 
+### 3. Developing the power of joy
 
+You develop the power of joy after the power of aspiration, an intense yearning produced a joyous perseverance not previously present, and you achieved the power of steadfastness(also called the power of pride) which causes the perseverance that has already developed to be irreversable.
 
+**The power of joy means that when you when you first engage in an activity, you do it joyfully, and once you have engaged you have a sense of insatiable in that you do not want to discontinue the activity**
 
+With respect to how you develop this insatiablity: 
 
+```
+Like those who want the pleasure that results from play,
+Bodhisattva's are passionate
+About any activity that they do.
+Insatiable, they take joy in their work.
+
+Shantideva
+```
+
+So strive with an attitude like that of children who engage in play without being satiated. **That is, you must be just as insatiable about what causes pleasurable results as you are about the results themselves.**
+
+```
+Even though they work for the sake of happiness,
+It is uncertain whether happiness will come.
+But as for those whose work itself is happiness,
+How can they be happy unless they work?
+
+Shantideva
+```
+
+This also the reason why being satiated is wrong.
+
+```
+If I am never satiated by sensual desires,
+Which are like honey on a razors edge,
+How could I be satiated with merit,
+Whose fruition is happiness and peace?
+
+Shantideva
+```
+
+**Develop an attitude of being insatiable as it describes above^^**
+
+Thus, in order to being to completion the virtuous activities in which you have engaged, enter them as a sun scorched elephant enters a pleasing lotus pond at noon. Train in this attitude until your produce it.
+
+```
+Thus, in order to finish the work,
+I shall enter into it just as
+An elephant, scorched by the midday sun,
+Comes upon a pond and plunges in.
+
+Shantideva
+```
 
