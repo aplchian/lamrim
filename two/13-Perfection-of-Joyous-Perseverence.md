@@ -560,3 +560,171 @@ Comes upon a pond and plunges in.
 Shantideva
 ```
 
+### 4. The power of relinquishment
+
+If you become physically or mentally fatigued from your perseverance, you must rest for a while. Otherwise, you will become later disheartened, thereby later preventing your joyous perseverance.
+
+Immediately after you have rested, persevere again, and when you have completely finished your earlier activity, do not let this satisfy you. **You must joyously persevere at other, higher activities**
+
+```
+When my strength declines,
+I shall leave the task so I can do it later.
+When it is really done, I shall set it aside,
+Seeking the next task, and the next.
+
+Shantideva
+```
+
+The next task is important, because if you consider each earlier good quality sufficient, this will be a big obstacle to the attainment of many higher attributes
+
+**The above presentation shows how to joyously persevere. Do not overexert yourself. You must avoid being both overly intense and being overly relaxed, so make your effort continuous like a river.**
+
+
+```
+In order to make yourself more exalted
+You never overexerted or relaxed too much.
+Thus your good qualities are indistinguishable
+By former and later phases.
+
+Matreta 'Praise in One Hundred and Fifty Verses'
+```
+
+```
+Practice at a measured pace that you can sustain. For example, a louse proceeds at a modest pace but never stops, so it soon arrives; whereas a flea takes great successive leaps and then stops, so it never gets there.
+
+Bo-do-wa
+```
+
+### c. Based on the elimination of unfavorable conditions and the accumulation of favorable conditions, being intent on joyously persevering.
+
+After you have thus identified the three conditions unfavorable to joyous perseverance, you attend to their remedies.
+
+You generate three powers: 
+
+1. **power of aspiration** - the favorable condition for weakening those as-yet unweakened unfavorable conditions.
+1. **power of steadfastness** - the cause of not turning back once you have started
+1. **power of joy** - never wants to discontinue the activity once you have engaged in it.
+
+Through the **power of relinquishment** you become adept at how to joyously persevere.
+
+**At this point you must develop the power of being intent on joyous perseverance, so I will explain this.**
+
+As to how you are to act when you joyously persevere at eliminating what is to be eliminated:
+
+```
+As a seasoned warrior approaches
+A sword-fight with an enemy,
+I shall parry the blows of the afflictions
+And strongly strike the afflictions, my enemies.
+
+Shantideva
+```
+
+When practioners battle their afflictions, they must persevere as they become proficient at 2 things:
+
+1. **taking defensive precautions and thus avoiding a wound to their mind**
+1. **on the offensive, destroying the afflictions by applying their remedies**
+
+Otherwise, you may defeat a partial part of the afflictions, but are robbed of some aspect of of virtue by other afflictions, or else develop a great fault in their mind so that the harm of the afflictions and the creation of virtue are equal, in which case it will be hard to make further progress in the virtuous practice of applying the remedy.
+
+To cite an example:  
+
+Some think that knowledge is the most important thing, so they acquire knowledge and rid the confusion of ignorance through studying, but meanwhile because they were not cautious about the other afflictions, their mindstream is utterly ruined by the stain of wrong behavior. 
+
+Other people may think that meditation and discipling the mind is much more important than knowledge and thus emphasize meditation.. casting away caution about the enemy, confusion, neither they study nor learn the teachings, so they become greatly confused about engaging in what is to be adopted and rejecting what is to be cast aside under the rules of the vows they have taken and are thus continually overcome by infractions.
+
+```
+If you drop your sword in battle,
+Out of fear, you quickly pick it up.
+Likewise, if I lose my weapon of mindfulness,
+In fear of hell, I quickly retrieve it.
+
+Shantideva
+```
+
+```
+O lord, the Sugata declared mindfulness of the body
+To be the one path to follow
+Hold fast to it and guard it.
+When mindfulness declines, all virtues perish.
+
+Nagarjuna 'Letter to a Friend'
+```
+
+**Furthermore, regarding the object to which mindfulness attends, mindfulness apprehends the object that wisdom has fully discerned; mindfulness does not distinguish its object on its own.**
+
+Q: What does wisdom discern?
+
+**In general, wisdom discerns everything to be adopted and everything to be cast aside as explained in the scripture; in particular, it discerns what is to be adopted and what is to be cast aside according to the vows that you have taken** Therefore, once you apply mindfulness and vigilance to these, you will complete your practice; you will not be successful by just applying mindfulness and vigilance within the narrow confines of attention to an object of meditation
+
+What is more, when warriors are in battle, they strive from the beginning not to lose their sword; when by chance they do drop it, they pick it up immediately. **These 2 actions rest on a fear of being killed that is not mere words** Likewise, those who cultivate the path are afraid to lose the mindfulness that does not forget what is to be adopted and what eliminated; even if they lose it, they immediately reapply it.  **These 2 actions are based on development in their minds of a real terror of falling into miserable realms as a result of the pollution of infractions and faults that occur when mindfulness lapses**
+
+**This in turn depends on having make karma and its effects central to their practice and then sustaining that approach**
+
+**Those who fail to develop the awareness that these points are profound instructions sever the root of the good qualities ensuing from the practice that delights the learned, the sacred foundation of the path.** 
+
+Q: Well, why is it necessary to look with fear upon even minor misbehavior, and not let it continue but immediately stop it?
+
+A: Like how a small wound from a poison arrow start small but spreads fast to infect the whole body. **Even when wrong behavior does not make anything more than a small wound on the mind, if you ignore it, it will quickly pervade your mind so that it becomes large. Therefore, from the start you must prevent wrongdoing before it takes place and, if it does happen, you must discontinue it immediately.**
+
+
+```
+Just as poison spreads throught the body,
+Carried by the blood,
+So a fault pervades the mind
+If it finds and opportunity.
+
+Shantideva
+```
+
+Q: Well, how do those who want victory over the afflictions apply mindfulness and vigilance?
+
+A: You must concentrate.
+
+```
+A practitioner must be as concentrated
+As someone carrying a pot full of mustard oil
+Who is fearful when a swordsman before him
+Threatens to kill him if he spills a drop.
+
+Shantideva
+```
+
+**While you are concentrating, if in general you should behave wrongly or in partivular you should experience the causes of laziness -- such as sleepiness, etc -- you should not assent to them, but must confront and avert them.**
+
+```
+Thus, if a snake came onto your lap,
+You would hastily stand up.
+Just so, if sleepiness and indolence come, 
+Quickly avert them.
+
+Shantideva
+```
+
+**Further, do not merely discontinue faults, but actively feel displeasure at their having occured.**
+
+think `"From now on I shall make sure that this fault never occurs"`
+
+```
+Whenever a fault occurs,
+I shall reproach myself and long ponder,
+"By all means I will do whatever it takes
+So that this shall never happen again"
+
+Shantideva
+```
+
+Strive at any deep causes that give rise to the continuous, powerful mindfulness that is the root of this practice. Rely on such activities as keeping the company of excellent teachers and companions, and broad learning, which are the causes of this powerful mindfulness. 
+
+```
+"In any of these situations
+I will practice mindfulness."
+With this motive aspire to meet teachers
+And engage in appropriate activities
+
+Shantideva
+```
+
+**In summary, you must study and discern well what bodhisattva training required you to adopt and to cast aside, and then joyously persevere at continuously being mindful in all your conduct of what you have understood about what to adopt and what to cast aside. Hence, it is extremely important not to err about that at which you are to persevere**
+
+
