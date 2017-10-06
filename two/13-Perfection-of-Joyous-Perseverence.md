@@ -728,3 +728,61 @@ Shantideva
 **In summary, you must study and discern well what bodhisattva training required you to adopt and to cast aside, and then joyously persevere at continuously being mindful in all your conduct of what you have understood about what to adopt and what to cast aside. Hence, it is extremely important not to err about that at which you are to persevere**
 
 
+### c. How to joyously persevere to make the mind and body serviceable
+
+The method for using joyous perseverance to make the mind and body serviceable is the power of mastery. Shantideva sets forth in the chapter on consciousness the necessity of learning the bodhisattva trainings; the extremely grave consequences if you do not train in these once you have pledged to do so; how to regard the afflictions as your enemy; and the ways to generate the courage that looks upon the hardship of battling the afflictions as an ornament rather than a burden.
+
+**Meditate on these before taking up the task of training in the bodhisattva deeds. Thus, stopping all the inhibitions that prevent you from using your body and mind for virtuous activity, rise gladly to that task.**
+
+Q: What form will the joyous perseverance produced by such efforts take?
+
+**A: Just as wind drives a piece of cotton to and fro, a joyful energy, enthused for virtue, controls your body and mind. When you act along with this energy, joyous perseverance is well established. Once you produce this, you will easily achieve all of the collections.**
+
+```
+Just like cotton under the power
+Of a wind that blows to and fro
+So I will be drive by enthusiasm;
+In this way I will accomplish all
+
+Shantideva
+```
+
+Although such tasks are difficult, it is wrong to give them up.
+
+```
+"The sublime state, difficult to each.
+Is not attained without hardship."
+Knowing this, you intensified your joyous perseverance
+Without concern for yourself
+
+Matreceta 'Praise in One Hundred Fifty Verses'
+```
+
+### d. How to Practice
+
+You must practice any kind of joyous perseverance in association with the six supremecies and the six perfections. The generosity of joyous perseverance is establishing other in joyous perseverance after you have established yourself therein. The remaining perfections are in accord with the earlier explanation.
+
+### e. A summary
+
+The recollection and cultivation of the spirit of enlightenment -- the basis of the bodhisattva deeds -- inspires you to train in order to set all living beings in joyous perseverance. So, steadily increase this spirit and then aspire to and train in the methods of joyous perseverance for those at high levels. 
+
+Also, strive as you are able at the methods of learning joyous perseverance for a beginning bodhisattva.
+
+In particular, effectively stop the various forms of discouragement, these being uniqely subject to elimination by joyous perseverance.
+
+Mentally put on the armour of joyous perseverance that is enthusiastic about the following: 
+
+- the goal of enlightenment
+- the aim of accomplishing the happiness and eliminating the suffering of all living beings
+- the very long period of time
+- the limitless collections
+- the immeasurable hardships
+
+Strive at this attitude, because as the `Questions of Subahu Sutra` says, just by generating the powerful surge of such resolve, you accumulate a great wave of merit. 
+
+If you do not do this, you fail to secure your Mahayana lineage, and you are also continually stained by wrongdoing, Then, in other lives aswell, you will find it very difficult to learn the bodhisattva deeds.
+
+Also, after you have become aware of such things, even if you do not practice perfectly motivate yourself in that direction. If you then joyously persevere to the extent that you are able, then, as the `Questions of Subahu Sutra` says, you will quickly complete the perfection if joyous perseverance in future lives, without suffering and with little difficulty. 
+
+
+
