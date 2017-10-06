@@ -337,9 +337,176 @@ Right now even if you gain the slightest small good quality you are content to m
 
 ### Gathering the forces of the favorable conditions
 
-pg. 195
+This has 4 parts:
+
+1. Developing the power of aspiration
+1. Developing the power of steadfastness
+1. Developing the power of joy
+1. The power of relinquishment
+
+### 1. Developing the power of aspiration
+
+As it is said that yearning acts as the basis for joyous perseverance, aspiration here refers to yearning. The need to generate it is stated in Engaging in the Bodhisattva Deeds.
+
+```
+My present destitustion has arisen
+From not aspiring for the teachings
+Both now and in the past.
+Who would forsake aspiration for the teachings?
+
+The Sage declared aspiration
+The root of all aspects of virtue.
+```
+
+```
+Its root, in turn, is constant meditation
+On Karma's fruitional effects
+```
+
+**This means that the way to develop aspiration is to meditate on how pleasant and unpleasant effects arise from virtuous and nonvirtous karma respectively.**
+
+Faith acts as the basis of yearning, so that the faith of conviction in the two types of karma and their effects will generate two kinds of desire:
+
+1. to eliminate nonvirtuous karma 
+1. and adopt virtuous karma
+
+You consider karma and its effects in general, and in particular, the causality underlying the benefits of the bodhisattva deeds and the faults of violating them.
+
+**Once you aspire to the Mahayana, you enter its door through a commitment to clear away all faults and achieve all good qualities for yourself and others**
+
+You must exhort yourself -- `I will have to meditate for many eons to purify myself of every single fault along with its latent propensity and to develop every single good quality to its fullest extent. Yet since I dont have even a fraction of the joyous perseverance needed to clear away faults or accomplish good qualities, I have pointlessly wasted my leasure.`
 
 
+### 2. Developing the power of steadfastness
+
+**Developing the power of steadfastness mean that you bring to conclusion, without turning back, anything at which you joyously persevere.**
+
+First, do not try to engage in everything -- examine the situation carefully. If you see that you can do it, engage in it, whereas if you cannot do it, then you dont start. 
+
+**You should not even start in the first place things that you will do for a while, and then discard.** The reason is because if you get habituated to giving up and stopping in the middle, then in your future lives you will do this as well. Consequently, your sins will increase and suffering, etc. 
+
+You will not accomplish other virtues, because you will be thinking of carrying out your earlier commitment; there will be an inferior result because you turned away from your earlier commitment, and your earlier commitment will not be fulfilled, because you did not follow through. 
+
+**In summary, committing yourself to do something but leaving it unfinished, is a hindrance to your accomplishing of other projects, and the conditioning destabalizes your commitment to the vows you have taken.**
+
+```
+First I examine the endeavor
+And then undertake it or not.
+If unable, it is best not to undertake it,
+But once begun, I will not turn back.
+
+Otherwise I will be conditioned to this [starting and then stopping] in other lives
+And my sin and suffering will increase.
+Also, other actions and their results 
+Will be poor and unaccomplished. 
+```
+
+**Therefore, if you want to complete what you have committed yourself to do, cultivate three types of pride.**
+
+```
+You should have pride in three areas:
+Action, ability, afflictions.
+
+Shantideva
+```
+
+#### Pride About Action:
+
+Means that no matter who else may be your companion as you practice the path, you do not count on them but accomplish it yourself alone.
+
+`I shall alone do it` - this is the pride of actions
+
+```
+Liberation depends on oneself;
+It never occurs through the help of others.
+
+Nagarjuna 'Friendly Letter'
+```
+The thought 'I alone shall achieve this without expectations of others,' is similar to price, so it is given the name "pride about action"
+
+#### Pride About Ability:
+
+Means that you accomplish your own and others welfare thinking: `Since living beings are under the power of afflictions, they are unable to achieve even their own welfare, much less the welfare of others. I am able to accomplish the welfare of both myself and others.`
+
+```
+The beings of the world, subject to the afflictions,
+Cannot even achieve their own welfare.
+They are not as able as I am,
+So I shall do it for them.
+
+Shantideva
+```
+
+Furthermore, practice while thinking, "If these beings strive at lowly activities without interruption, why should I not perform the actions that will achieve the perfect effect?"
+
+```
+If others perform lowly actions,
+How can I be idle?
+
+Shantideva
+```
+
+**However, when you achieve these 2 prides [action, and ability], you should not do so with self-conceit, out of contempt for others. Rather, regard others with compassion, and do not mix in any pride.**
+
+```
+I do not do it out of pride,
+I should have no pride.
+
+Shantideva
+```
+
+Thinking "Others are not capable; I am able", again resembles pride, so it is labelled 'pride'.
+
+
+#### Pride About Afflictions:
+
+Means that with contempt for the afflictions at all occasions, you think **"I shall be victorious over these; they shall never defeat me."** It means being steadfast after you have generated the courageous thought to destroy the incompatible factors.
+
+```
+I shall conquer all;
+Nothing shall defeat me.
+I, a child of the Victorious Lion,
+Shall continue to have this pride.
+
+Shantideva
+```
+
+```
+Even a crow acts like a garuda
+When it finds a dying snake.
+If I am feeble,
+Even a slight shortcoming will harm me.
+
+How can one who gives up, discouraged,
+Find freedom from destitution?
+
+Shantideva
+```
+
+**If you apply these 3 prides, even great incompatible factors cannot block you, so you must generate these three kinds of pride.**
+
+```
+Against one who strives with pride
+Even great obstacles will be in trouble.
+
+So, with a steadfast mind
+I will overcome my shortcomings.
+
+Shantideva
+```
+
+**Otherwise, if practitioners are defeated by their shortcomings, their desire to conquer the afflictions of the three realms will be an embarrasement among the learned**
+
+```
+If i am defeated by shortcomings,
+My desire to conquer the three realms is a joke.
+
+Shantideva
+```
+
+**It is called 'pride about the afflictions', because you have contempt for the afflictions and then want to destroy them.**
+
+Thus, stop expecting something from others and put on the armor of doing it alone. That is, be confident and think, "Unlike me, others cannot do it, I can do it." When you practice with this perspective, you are sure that you will defeat the afflictions -- that they will never defeat you -- and you consider that it would be a mistake to abandon your commitment after a while. **Train yourself until your mind is steadfast in the desire to finish everything to which you have committed yourself after you have carefully examined whether you can do it.**
 
 
 
