@@ -10,6 +10,7 @@
 1. How to practice
 1. A summary
 
+
 ### 1. What Meditative Stabilization is
 
 **Meditative stabilization is a virtuous, one-pointed state of mind that stays fixed on its object of meditation without distraction to other things**
@@ -53,6 +54,12 @@ according to function:
 
 Whenever you practice any virtuous meditative stabilization you do so in association with the six supremacies and all 6 perfections. The generosity of meditative stabilization is maintaining meditative stabilization yourself and then establishing others in it. Understand the other perfections from earlier explanation.
 
+### 5. A summary
 
+The recollection and the cultivation of the spirit of enlightenment -- the basis of the bodhisattva deeds-- is what inspires you to train in order to set all living beings in uncontaminated meditative stabilization. After you have increased the stability of this spirit, aspire to the high meditative stabilizations and train in these. Even if you are unable to fully develop the stabilizations, you must strive to train from time to time in one-pointed concentration to whatever extent you are able.
+
+**If you do not do so, you will be continually stained with the fault of breaking the precepts, and in other lives as well you will find it most difficult to learn the trainings for entering the many doors of the bodhisattva's meditative stabilization.** 
+
+**Whereas, if you never give up your effort, even in this like your mind will become steadily less distracted, making your accumulations of virtues very powerful. In future lives you will have physical and mental bliss and a joyful mind, thereby easily completing the perfection of meditative stabilization.**
 
 
