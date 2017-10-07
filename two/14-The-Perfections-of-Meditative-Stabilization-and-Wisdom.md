@@ -63,3 +63,24 @@ The recollection and the cultivation of the spirit of enlightenment -- the basis
 **Whereas, if you never give up your effort, even in this like your mind will become steadily less distracted, making your accumulations of virtues very powerful. In future lives you will have physical and mental bliss and a joyful mind, thereby easily completing the perfection of meditative stabilization.**
 
 
+## How to Train in the Perfection of Wisdom
+
+5 parts:
+
+1. What wisdom is
+1. How to begin the generation of wisdom
+1. The divisions of wisdom
+1. How to practice
+1. A summary
+
+### 1. What wisdom is
+
+In general, wisdom is what thoroughly discerns the ontological status of the object under analysis, but in this context wisdom refers to proficiency in the five topics of knowledge and the like.
+
+```
+Know that bodhisattva's wisdom is the thorough analysis of phenomena that engages or has engaged all of what is to be known and that operates through focusing on the five topics of knowledge -- Buddhist knowledge, grammar, logic, technical arts, and medicine. 
+
+Asanga Bodhisattva Levels
+```
+
+Here, the wisdom that "engages" refers to wisdom prior to attaining the bodhisattva levels; wisdom that "has engaged" refers to wisdom after attaining such levels.
