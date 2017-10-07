@@ -49,5 +49,10 @@ according to function:
 1. **meditative stabilization that achieves good qualities** - meditative stabilizations which accomplish good qualities shared with the shravakas - the superknowledges, liberations, totalities, masteries, etc.
 1. **meditative stabilization that carries out the welfare of living beings** - meditative stabilization that accomplishes the eleven activites for others welfare
 
+### 4. How to practice
+
+Whenever you practice any virtuous meditative stabilization you do so in association with the six supremacies and all 6 perfections. The generosity of meditative stabilization is maintaining meditative stabilization yourself and then establishing others in it. Understand the other perfections from earlier explanation.
+
+
 
 
