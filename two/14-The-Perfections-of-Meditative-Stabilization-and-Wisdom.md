@@ -32,3 +32,22 @@ Shantideva
 Think over the benefits of meditative stabilization and the faults of not cultivating it. I will explain this in the meditative serenity section.
 
 ### 3. The divisions of meditative stabilization
+
+In line with the above citation from Asanga, if you subdivide meditative stabilization according to:
+
+according to nature: 
+1. mundane
+1. supramundane
+
+according to orientation: 
+1. serenity
+1. insight
+1. both conjoined
+
+according to function: 
+1. **meditative stabilization that stabilizes mind and body in bliss within this life** - meditative stabilizations that generate mental and physical pliancy when you enter them with equipose
+1. **meditative stabilization that achieves good qualities** - meditative stabilizations which accomplish good qualities shared with the shravakas - the superknowledges, liberations, totalities, masteries, etc.
+1. **meditative stabilization that carries out the welfare of living beings** - meditative stabilization that accomplishes the eleven activites for others welfare
+
+
+
