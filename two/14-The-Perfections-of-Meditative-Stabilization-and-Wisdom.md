@@ -267,3 +267,44 @@ Just so, child of good lineage, if you study, wisdom will come. If you are posse
 Questions of Narayana Formula
 ```
 
+Those who wish to properly practice the teaching need a broad study of the stainless scriptures and their commentaries, the unexcelled cause that gives rise to the wisdom which thoroughly distinguishes phenomena, which is the sacred life force of the path. However, not achieving wisdom while thinking that a broad study is necessary to develop it is simply the fault of your not being convinced that you need the analytical meditation of discerning wisdom when the time comes for practice, and of having the mistaken conviction that thinks that analytical meditation is not necessary. **Therefore, those of you who want what is best for yourselves should eliminate such a mistaken conviction as though getting rid of poison**
+
+Pu-chung-wa placed an opened sacred text beside his pillow and said
+```
+We must learn the texts, so even though you do not get a chance to read them, make a wish to read them all. If someone said that you should practice the teaching without understanding it, how would you do?
+```
+
+```
+Until you become a buddha, your studies are not finished. They are finished when you are a buddha.
+
+Sharawa
+```
+
+```
+It is precisely the meditator who must study to avoid straying from the path
+
+Ga-ma-pa
+```
+
+**Thus you must be convinced that wisdom and the study that causes it are indispensable for proper practice. Moreover, unless you reach certainty about the need for analytical meditation when you practice, you will have a very hard time getting anywhere.**
+
+There are just 2 kinds of teaching: teaching as scripture and teaching that has been put into practice; the former makes known the procedures for practice; and the latter is assimilating the practice after you have understood the procedures. Therefore, doing the practice without error is the best way to uphold the teaching. **Moreover, unerringly upholding the teaching in the sense of practice depends upon an unerring understanding of scriptural teaching.**
+
+**Therefore, it is not right to forget what you have studied at the time of practice, for you must first know many teachings and then put their very meaning into practice when the time comes to do so.**
+
+Do not make study and practice into separate things. **Rather, the thing that you practice must be exactly what you first study and reflect upon.**
+
+**Therefore, if instructions are accurate and complete, then although summarized, all the key points of the sutra and tantra paths and the paths of the higher and lower vehicles must be covered; once they have been explained at length, you must be able to go through all the teachings. Until you reach something like this, it is possible to feel delight about just some portion of your practice, but it is impossible to become certain about the key points of practice for the complete corpus of the teachings**
+
+So make sure to:
+
+- rely upon excellent teacher and companions
+- make a foundation of pure ethical discipline to which you commit yourself
+- listen again and again to the instructions
+- do 4 sessions of meditation
+- then sustain the object of meditation and its subjective aspects
+- after you have made fervant supplications to the deities and gurus, strive at all the causes of engaging from many perspectives in accumulating the collections and purifying obscurations
+
+**If you do this, you will become profoundly certain that the good qualities in your mind will steadily improve.**
+
+a good quote here pg 221-222
