@@ -156,3 +156,114 @@ These good qualities, and so it beautifies them.
 
 Compendium of Perfections
 ```
+
+and also:
+
+```
+Without rejecting the real nature, 
+You are also in accord with the conventional
+
+Matrceta 
+```
+Thus, you do not have to forsake the real nature that gives great certainty that there is not even an atom of what your cognitive processes apprehend as signs of true existence. And also you are in accord with and do not contradict the conventional that gives deep certainty that effects arise from their respective internal and external causes and conditions. For others these appear to totally exclude each other, but for those who have wisdom, there is compatibility and a lack of contradiction.
+
+```
+Regarding your proscriptions and prohibitions,
+Some of your world is definitive
+While some of it is not,
+But between these, there is no contradiction
+
+Matrceta
+```
+
+**The two facts- that there are many dissimilarities in proscriptions and prohibitions between higher and lower vehicles and between sutra and tantra, and that these are all the practices of a single person -- are contradictory for those who are confused and lack the power of intelligence to seek the intended meaning of the innumerable scriptures. Yet through wisdom the learned know that these are not mutually exclusive.**
+
+There are limitless things that the unwise see as contradictory and the wise see as lacking contradiction.
+
+In short, all good qualities come from wisdom.
+
+##### The faults of not having wisdom are as follows
+
+Without wisdom, generosity and the other perfections are as if blind.
+
+```
+How could billions of blind people without a guide,
+Who do not know the way, enter the city?
+Once these 5 perfections lack wisdom, they are blind;
+As they lack a guide, they cannot reach enlightenment.
+
+Verse Summary of the Perfection of Wisdom in Eight Thousand Lines
+```
+
+Consequently, generosity and the other perfections do not become pure, and you do not find the correct view.
+
+```
+If those intent upon the final fruit are without wisdom,
+Their generosity does not purify them. The Buddha said,
+"Giving for others' sake is supreme generosity."
+Other kinds of giving serve only to increase ones wealth.
+
+Compendium of Perfections.
+```
+
+**You do not repel the darkness of delusion's confusion as long as wisdom's great light does not shine, but when it does, you cast away the darkness, so you must make an effort to generate wisdom with whatever capacity and strength you have.**
+
+**What are the causes of confusion?** they are relying on bad friends, laziness, indolence, oversleeping, taking no pleasure in analysis and discernment; lack of interest in the vast veriety of phenomena; **the pride of thinking "I know" when you do not.**, the major wrong views, and being discouraged and thinking "Someone like me cannot do this", and thus not taking pleasure and relying upon the learned. 
+
+Therefore, as the `Compendium of Perfections` says
+
+```
+Serve and venerate a guru worthy of trust,
+And study to achieve wisdom.
+```
+
+**Once you rely upon a learned person, you must study in accord with your capacity, for if you do not, you will not produce the wisdom that arises from study and the wisdom that arises from reflection, whereupon you will not know what to meditate upon. And if you do study, you will produce the wisdom that arises from reflection by thinking over the meaning of what you have studied, and from this you will gain the vast wisdom that arises from meditation.**
+
+```
+Little study is like blindness -- you do not know how to meditate.
+Without study, what could there be to reflect upon?
+Therefore, from the cause of making an effort to study
+You meditate in accord with reflection and thereby gain vast wisdom.
+
+Aryasura
+```
+
+```
+The conceptualizations of the three spheres 
+Are asserted to be cognitive obscurations,
+While conceptualizations such as stinginess and the like
+Are asserted to be afflictive obscurations.
+
+Solely wisdom is the cause
+Of their elimination, nothing else,
+So wisdom is supreme. Study is its basis,
+So study is supreme.
+
+Maitreya 'Sublime Continuum'
+```
+
+```
+Be forbearing and then study,
+Stay in a forest, and then
+Persevere at meditative equipose
+
+Shantideva - Compendium of the Trainings in Verse
+```
+
+His auto-commentary to this says:
+
+```
+With impatience, you become disheartened and cannot forbear,
+so your perseverance at study, etc, decline. And without study,
+You do not know the means for either meditative stabilization or for clearing away afflictions.
+Therefore, without become disheartened, study.
+
+Shantideva
+```
+
+```
+Just so, child of good lineage, if you study, wisdom will come. If you are possessed of wisdom, the afflictions with be stilled. Once you have no afflictions, demons do not have a chance with you
+
+Questions of Narayana Formula
+```
+
