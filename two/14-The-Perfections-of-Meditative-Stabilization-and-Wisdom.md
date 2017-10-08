@@ -84,3 +84,75 @@ Asanga Bodhisattva Levels
 ```
 
 Here, the wisdom that "engages" refers to wisdom prior to attaining the bodhisattva levels; wisdom that "has engaged" refers to wisdom after attaining such levels.
+
+
+### 2. How to begin the generation of wisdom
+
+The way to begin the generation of wisdom is to contemplate the benefits of generating wisdom and the faults of not generating it. The benefits and faults of having or lacking the wisdom of `selflessness` will be explained later, so here he will discuss the remaining types a little.
+
+With respect to indicating wisdom's benefits, wisdom is the root of all good qualities for this and future lives.
+
+```
+Wisdom is the root of all good qualities,
+Seen and not yet seen.
+To achieve both of these,
+Embrace wisdom.
+
+The great source of what you seek
+And for liberation is knowledge.
+So, esteeming it from the start,
+Adhere to wisdom, the great mother.
+
+Nagarjuna 'Hundred Verses on Wisdom'
+```
+
+Wisdom functions like an eye for the other 5 perfections.
+
+If the gold ornament of the 5 perfections from generosity to meditative stabilization is adorned with wisdom, which is able to distinguish right from wrong, they become more magnificent, because wisdom makes them much purer. 
+
+```
+The merits of generosity and so forth
+Are more powerful with wisdom as their lord,
+Just as an array of fine gold jewelry
+Shines more brightly when inset with jewels.
+
+It is this wisdom that renders vast
+The capacity for virtue in the purpose of each one,
+Just as the mind's additional power clearly displays
+The respective objects of the sensory faculties.
+
+Aryasura 'Compendium of Perfections'
+```
+
+Similarly, wisdom is also crucial for other faculties such as faith and so on. When wisdom is present as lord, your generosity, faith, etc, understand well the merit of virtue and the faults of stinginess and so forth, so you will become skilled at eliminating afflictions and increasing good qualities.
+
+Bodhisattvas depend on wisdom to purify the other 5 perfections. If when they give their flesh to someone who asks for it, they are unaffected by such thoughts as pride, discouragement, etc. It is as though they were taking a cut from a medicinal plant. **This is because their wisdom makes reality manifest.**
+
+**With the wisdom that sees the trouble of both cyclic existence and the peace of nirvana, they accomplish ethical discipline for the sake of others welfare, so they practice pure ethical discipline.**
+
+**Through wisdom they know the faults of impatience and the merits of patience, and they then discipline their minds so they are not over powered by suffering and others misperceptions of them.** 
+
+**With wisdom they understand well everything at which they joyously persevere, so their perseverance brings great success on the path.**
+
+**And through wisdom based on reasoning they accomplish the supreme delight and bliss of the meditative stabilization that is fixed upon the meaning of reality.**
+
+Two good qualities which may appear to be mutually exclusive prove to be non contradictory for those who have wisdom. 
+
+```
+Even bodhisattvas possessed of great kingdoms,
+Who have sensory objects similar to divine substances,
+Remain uncorrupted in their very nature.
+This is the power of having the virtue of wisdom as their minister.
+
+Their love, inseparable from helping others,
+Is utterly free of stain from attachment.
+Their compassion, unable to bear for others suffering,
+Never succumbs to laziness due to the burden of distress.
+
+Possessed of supreme joy, they do not waver from the real.
+Their great impartiality never neglects the welfare of beings.
+Great wisdom removes all that would counteract
+These good qualities, and so it beautifies them.
+
+Compendium of Perfections
+```
