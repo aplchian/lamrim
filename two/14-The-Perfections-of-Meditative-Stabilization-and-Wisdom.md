@@ -341,3 +341,8 @@ The topics are distinguished by the different sorts of purposes for pursuing the
 
 Wisdom that knows how to act for the welfare of living beings knows the way to accomplish blamelessly the welfare of beings in their present and future lives.
 
+### d. How to Practice
+
+When you develop the 3 types of wisdom, you do so in association with the six supremecies and all six perfections. The generosity of wisdom is establishing others in wisdom after you have stabilized yourself in it. 
+
+### e.
