@@ -337,3 +337,7 @@ Ornament for the Mahayana Sutras
 
 The topics are distinguished by the different sorts of purposes for pursuing them. To refute those who do not believe in the teaching, you pursue knowledge of grammar and logic. To help those who do not believe, you pursue knowledge of the arts and medicine. To achieve knowledge of all yourself, you pursue buddhist knowledge. But to attain buddhahood, there are no such distinctions between them; you must pursue all topics of knowledge.
 
+#### 3. Wisdom that knows how to act for the welfare of living beings
+
+Wisdom that knows how to act for the welfare of living beings knows the way to accomplish blamelessly the welfare of beings in their present and future lives.
+
