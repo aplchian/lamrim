@@ -345,4 +345,24 @@ Wisdom that knows how to act for the welfare of living beings knows the way to a
 
 When you develop the 3 types of wisdom, you do so in association with the six supremecies and all six perfections. The generosity of wisdom is establishing others in wisdom after you have stabilized yourself in it. 
 
-### e.
+### e. A summary
+
+**Even if you have the wisdom that perceived emptiness, it does not become a bodhisattva deed without the spirit of enlightenment, so steadily increase the spirit of enlightenment -- the basis of the bodhisattva deeds.**
+
+Next, aspire to the wisdom of those at high levels and then train your mind in it. 
+
+**From this moment you must strive to produce the three the three types of wisdom -- the method for completing the peerless, great collection of sublime wisdom -- and you must study. If you dont do this you will contradict the principal precept and then be destroyed by infractions and downfalls. In future lives as well you will not take pleasure in broad learning and consequently not be able to learn the bodhisattva trainings**
+
+Whereas, if in this life you strive at the methods of developing wisdom, you prevent the infraction of not training in the six perfections as promised; then in other lives as well, you will easily be able to complete the perfection of wisdom.
+
+Nowadays from among the 6 perfections -- the center post of both the sutra and tantra paths -- there exists in slight measure the stages of the practice of meditative stabilization, but the stages of the practice of the other 5 perfections have disappeared, therefore I have explained the key points of their practice in abbreviated form and a little of the method for generating certain knowledge of them.
+
+Below I will teach at length two topics that come from the classic texts: the stages of how to practice insight -- wisdom that observes the real nature and the diversity of phenomena -- and the stages of the practice of meditative serenity, which is meditative stabilization.
+
+**All Bodhisattvas who will attain buddhahood do so in reliance upon the 6 perfections.** The Bodhisattva Bhumis says this emphatically at the conclusion of its discussions of each of the 6 perfections. Hence, these 6 perfections are to be known as the one path traveled by bodhisattvas of the past, present, and future. And because these 6 are the great ocean of all virtues, they are the perfect summary of the key points of practice.
+
+```
+Bodhisattvas who attain unsurpassed, perfect enlightenment by these 6 perfections are called a great river, a great ocean of virtues; generosity and so forth are the most precious causes of all excellent things for all living beings. Accordingly, there is nothing comparable to the perfections' immeasurable completion of the collections of merit and sublime wisdom and their fruit of unsurpassed, perfect enlightenment.
+
+Bodhisattva Bhumis
+```
