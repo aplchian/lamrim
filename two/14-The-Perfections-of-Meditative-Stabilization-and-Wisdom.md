@@ -308,3 +308,32 @@ So make sure to:
 **If you do this, you will become profoundly certain that the good qualities in your mind will steadily improve.**
 
 a good quote here pg 221-222
+
+### 3. The divisions of wisdom
+
+3 parts:
+
+1. Wisdom that knows the ultimate
+1. Wisdom that knows the conventional
+1. Wisdom that knows how to act for the welfare of living beings
+
+#### 1. Wisdom that knows the ultimate
+
+Wisdom that knows the ultimate cognizes the reality of selflessness, either by means of a concept of in direct manner
+
+
+#### 2. Wisdom that knows the conventional
+
+Wisdom that knows the conventional is wisdom that is proficient at the 5 topics of knowledge.
+
+```
+Without making effort at the five topics of knowledge,
+Even the supreme noble beings do not reach omniscience.
+So they must strive for these so as to refute others,
+To care for others, and to know everything.
+
+Ornament for the Mahayana Sutras
+```
+
+The topics are distinguished by the different sorts of purposes for pursuing them. To refute those who do not believe in the teaching, you pursue knowledge of grammar and logic. To help those who do not believe, you pursue knowledge of the arts and medicine. To achieve knowledge of all yourself, you pursue buddhist knowledge. But to attain buddhahood, there are no such distinctions between them; you must pursue all topics of knowledge.
+
