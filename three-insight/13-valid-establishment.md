@@ -43,6 +43,8 @@ In brief, what Candrakirti intended in this passage is that the sensory consciou
 
 The essentialists say well, if the objects didn't have intrinsic existance, then they would be non-things, devoid of any capacity to function. They therefore assert that if the sensory consciousnesses are not valid perceptual cognitions of the intrinsic character of the 5 objects, then there can be no valid cognition of the 5 objects, but if the sensory consciousnesses are valid cognitions of the 5 objects, then they will be valid cognitions of the intrinsic character of those objects.
 
+**continue on pg 166**
+
 ```
 Also, perceivers of falsities are of two types:
 Those with clear sensory faculties and those with imparied sensory faculties.
