@@ -96,3 +96,76 @@ In conclusion, Tsongkhapa says that the lam rim tradition presented in *The Lamp
 
 ### b. The greatness of apprehending that all the scriptures are special instructions
 
+
+```
+If one has listened to many teachings but is still bereft of the Dharma, the failure is caused by not recognizing the scriptures as special instructions.
+
+Tsonghkapa
+```
+
+What you learn from teachings is exactly what you should put into practice. What you practice is what you should learn about.
+
+All of the Buddhas teachings are included in 2 aspects; scriptures and realizations.
+
+**Scriptures** teach the system of practice and the way to engage in those practices. The explain everything; the goals of the practice, how to accomplish the goals, how to meditate, and so forth. **Once you know what to do, you set about doing it.**
+
+**Realizations** refer to the actual practices to accomplish the goals laid out by the scriptures.
+
+These 2 should be seen as the cause and the result. The scriptures seen as the cause.
+
+Whatever you understand from study and reflection should be practiced in meditation - not something new.
+
+The special method for making all scriptures appear as special instructions is analytical meditation.
+
+The conviction that all these scriptures are the supreme instructions completely dispels the wrong view that believes these sutras tantras and their commentaries have no intrinsic relevance to practice.
+
+
+### c. The greatness of easily understanding the conquerors intent.
+
+The scriptures are so vast it would be hard to grasp the purport of these teachings on your own. 
+
+The purpose of practicing the lam rim method is to help you quickly and easily comprehend the true meanings of the scriptures.
+
+How does this work? Atisha organized the path into 3 scopes. The explained in detail each step of those paths. **As each topic comes up, a student studies the explanation, contemplates it, and realizes it.**
+
+Without the focus sense of the lam rim teachings it would be hard to see the meaning of all of the scriptures.
+
+With the binoculars of the lam rim method you can see all of the important features of the path and how they fit together. This is why we say that the lam rim tradition has the special quality of enabling you to easily grasp the buddhas intent. 
+
+### d. The greatness of naturally ceasing serious misdeeds.
+
+Great wrong doing is negative or evil karma. One of the most powerful misdeeds is repudiating the Dharma.
+
+**What is repudiating the Dharma?** It is believing that some of the buddhas teachings should be practiced, but other should be cast away. 
+
+```
+This one taught for the sravakas, and that one taught for the bodhisattvas, repudiates the dharma. By saying "this one is taught for the pratyekabuddhas", one repudiates the dharma. "This one is not a training for the Bodhisattvas", one repudiates the dharma.
+```
+
+From one perspective - It's true that there are differences between the teachings. Different teachings are directed to trainees at different levels.
+
+But from another, this is misguided partiality. It is misguided because all of the teachings equally deserve our respect since they were taught for the purpose of guiding some individual to the state of buddhahood. 
+
+The problem comes when you misunderstand the way in which the teachings are different. If you think their different make one better than the other, your partiality may lead you to repudiate the teaching that you see as inferior. **This is a subtle distinction.**
+
+**Be very careful about this, because the karma of repudiating the Dharma is said to be worse than destroying stupas and killing arhats**
+
+The predominate for is easy to fall into.. you:
+
+1. make discriminating judgments about the different levels of the scriptures
+2. then develop partiality
+3. then decide not to study or practice those that you feel are inferior
+
+Since this constitutes such a grave negative karma, you should make every effort to avoid it.
+
+How do you avoid this? 
+
+The most effective method is to gain confident understanding of the first 2 'greatnesses' of the lam rim tradition. 
+
+When you realize the importance and greatness of all of the different parts this kind of heavy negativity naturally and spontaneously melts away. You don't need to make any special effort to get rid of it. It is in this sense that the lam rim possesses the greatness of naturally preventing misdeeds.
+
+Now that we have a proper appreciation for the lam rim tradition we are ready to explore how to listen and how to explain those instructions.
+
+
+
+
