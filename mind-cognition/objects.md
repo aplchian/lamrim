@@ -263,6 +263,7 @@ A conceptual consciousness is always mistaken consciousness because its mistaken
 
  Prime Cognizer `tsema` - a new incontrovertible knower
 
+## Sense Direct Perceivers
 **Sense Direct Perceiver** - That which is produced in dependence on its own uncommon empowering condition. That which is free from conceptuality and non-mistaken.
 
 The uncommon empowering condition is not the eye ball. But it is the subtle matter, like the rods and cones in the back of our retina that allow an interface between our consciousness and allow it to come into contact with the aspect we are seeing.
@@ -299,7 +300,35 @@ Prime cognizer which is a sense direct perceiver -
 2. the second moment of a sense direct perceiver apprending form
 3. inattentive - in order for it to be ascertained you should be able to recall that you saw it. A sense direct perceiver apprehending a form in the continuum of a person whose mind is especially attracted to a pleasant sound
 
+If you put chocolate on a corpse it wont be a perceiver because there is no immediately preceding condition of consciousness.
 
+Mental consciousness has it's own uncommon empowering condition. Does the mind have a physical sense power? The Brain? No. The uncommon empowering condition of the mental consciousness is a previous moment of consciousness. It could be the same or different than the immediately preceding condition.
+
+## Mental Direct Perceivers
+
+1. a consciousness that is an other knower which is free from conceptuality and non-mistaken and
+2. that which is generated in dependence on a mental sense power which is its own uncommon empowering condition
+
+What is an `other knower`? it is knowing something other than itself. Self knowing is a quality ascribed by the sautantrika and mind only. Self knowers know consciousness. Even though an object might be present. One part of the consciousness has the ability to know another object.
+
+What appears to an other knower? An apprehended object. Some kind of thing you are knowing about. A self knower.. its aspect is apprehension itself.
+
+## Yogic Direct Perceiver
+
+1. An other knowing exalted wisdom (con) in a continuum of a superior which is free from conceptuality and non-mistaken.
+2. That which is generated in dependence on its own uncommon empowering condition
+
+Its uncommon empowering condition is its meditative stabilization (samadhi). Which is the union of calm-abiding and special insight. 
+
+2 divisions:
+
+- prime
+- subsequent congnizer
+
+there is no inattentive yogic cognizer
+
+
+# 5
 
 
 
