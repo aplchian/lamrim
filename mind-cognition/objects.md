@@ -170,15 +170,15 @@ a consciousness that has eliminated all superimpositions about something..
 ```
 because the definition of something ís being an incontrovertible
 consciousness is
-a knower which gets at its object of analysis.î
+a knower which gets at its object of analysis.
 
 ```
 
 after analyzing, it gets after its object correctly
 
-What would it mean to realize the perfect human rebirth? .. One has not just read the words, but has analyzed it an has eliminated all misconceptions and has had some experience of the truth of that.. one has an incontrovertible consciousness because of that.. that person would not be someone who wastes time
+What would it mean to realize the perfect human rebirth? .. One has not just read the words, but has analyzed it an has eliminated all misconceptions and has had some experience of the truth of that.. one has an **incontrovertible consciousness because of that**.. that person would not be someone who wastes time
 
-When you use the logical reasoning presented removes the superimpositions that make it hard to realize this
+When you use the logical reasoning presented it removes the superimpositions that make it hard to realize this
 
 Its only when you reach the level of inferential cognizer that you can have the first valid / prime incontrovertible cognizer
 
@@ -247,7 +247,7 @@ in order to understand what a direct prime cognizer is we have to understand wha
 
 non mistaken means non mistaken about the appearing object.
 
-A conceptual consciousness is always mistaken consciousness because its mistaken with respect to its appearing object because it appears to be the object itself
+**A conceptual consciousness is always mistaken consciousness because its mistaken with respect to its appearing object because it appears to be the object itself**
 
 4 direct perceivers:
 
@@ -323,12 +323,95 @@ Its uncommon empowering condition is its meditative stabilization (samadhi). Whi
 2 divisions:
 
 - prime
-- subsequent congnizer
+- subsequent cognizer
 
 there is no inattentive yogic cognizer
 
-
 # 5
+
+referent object / observed object (mik yul) - the referent object doesn't always have to be the apprehended object. 
+
+The utility of the referent object comes when we start talking about conception... when the referent object.. and what you are conceiving is contradictory to the referent object.
+
+So sometimes the referent object is what is being perceived, but some times we are messing with it and perceiving something else.
+
+According to sautrantika, every other knowing consciousness has a self-knower as a apart of its entity.. that is aware not of the object, but just of its state
+
+Anything that exists as an object of thought can be called anything... rabbit possessor and moon
+
+other knower (shin rig) 
+
+the self knower verifies the knowing of the outer object
+
+these tenets posit the self knower to show how memory is possible.. but the upper tenets say that the mere other knower itself knowing that other object is capable of inducing certaintly later that you knew / experienced it.
+
+**Yogic Direct Perceiver**
+
+It's a samahdi which is a union of shamata and vipashyana .. 
+
+Shamata is when there is no more agitation in the mind.. when there arent a lot of thoughts in the mind.. the mud can sink and you are left with a lucid pool of water .. calming the mind from the usual discursive thoughts that causes the afflictions to rise and your mind to be polluted... then you can learn to analyze with that calm mind.. the vipashyana is like a skilled fish that can swim that no longer agitates the pond to bring up discursive thoughts or cause turbulince to the mind..
+
+when you have these 2 together there is a union
+
+that is the necessary empowering condition for a yogic direct perceiver .. 
+
+For an omniscient exalted mind , there is no such thing as a subsequent cognizer.. every instant of an omniscient consciousness engages its object by its own power, even the second and third instances... 
+
+If you asked what type of mind would be an omniscient mind it would be a yogic direct perceiver
+
+Every moment of a yogic direct perceiver is able to know the object by its own power..
+
+buddha has no conceptual mind.. buddha has no mental images
+
+ ## Direct Prime Cognizer
+
+  - a new incontrovertible knower that is free of conceptuality
+
+ incontrovertible means it realizes its object - the object it is apprehending actually exists.. so it can't be a mistaken consciousness 
+
+ 4 divisions of direct prime cognizers
+
+  1. self knowing
+  2. sense
+  3. mental
+  4. yogic direct prime cognizer
+
+directly realizing means incontrovertible
+
+the course or subtle selflessness of persons is not something which is .. is not the appearing object
+
+the direct perception realizes the impermanent aggregates and indirectly realizes selflessness 
+
+**so it is realizing with a direct perception, but not realizing it directly**
+
+the beginning of the path of preparation begins when they have a union of tranquil abiding and meditative insight meditating on selflessness / emptiness via a mental image 
+
+union of tranquil abiding and meditative insight doesnt have to be a direct perceiver 
+
+prasangikas say that direct perceptions can know permanent phenomena, but sautrantikas say all they know is impermanent phenomena 
+
+prasangika says the subtle selflessness of persons is the emptiness of the person being truly existant.. the gross selflessness of persons is the persons is empty of being self supporting.. something that is able to support itself.. different that true existant
+
+for sauntrantika that emptiness of self supporting / substantially existant is their subtle.. their gross is the emptiness of the person being permanent, partless, and independent .. this is an intellectually born ignorance.. there is no innate form of this
+
+what does this **self supporting / substantially existant** mean? .. in the lower schools there are 2 types of phenomena.. substantially exist and imputadely existant.. there are some objects that substantially exist.. a forest is something imputedly because a forest of comprised of trees.. if you only see some of the trees you dont see the whole forest.. the same with an army.. they say the self is like this, the self is imputed on the 5 aggregates. 
+
+**the lack of a self supporting substantially existant person is the realization of the subtle selflessness of person, and gross selflessness the person is empty of being permanent partlesss and independent being, and subtle impermanence are the 3 kinds of object yogic direct perceivers take as their object.. the realize them via direct perception, but dont realize them all directly. they realize 2 of the indirectly**
+
+## Facsimile of direct perceptions
+
+**A knower which is mistaken with respect to its appearing object**
+
+tar nang - appearing like .. something which appears to be direct perceptions but are not
+
+facsimile of a direct perceiver and mistaken consciousness are synonyms
+
+For something to realized introvertibly it doesn't have to be a direct perception.. you can realize it with a direct perception or with inference
+
+You can know an object perfectly. You develop a conception of emptiness and over time 
+
+
+
 
 
 
