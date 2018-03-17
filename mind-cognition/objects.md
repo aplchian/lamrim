@@ -402,13 +402,104 @@ what does this **self supporting / substantially existant** mean? .. in the lowe
 
 **A knower which is mistaken with respect to its appearing object**
 
-tar nang - appearing like .. something which appears to be direct perceptions but are not
+**tar nang** - appearing like .. something which appears to be direct perceptions but are not
 
 facsimile of a direct perceiver and mistaken consciousness are synonyms
 
 For something to realized introvertibly it doesn't have to be a direct perception.. you can realize it with a direct perception or with inference
 
 You can know an object perfectly. You develop a conception of emptiness and over time 
+
+#6
+
+You can realize something through inferential cognition and direct perception. These can both be valid. The consciousness has to be incontrivertable and fresh/new (sautrantika) ... to be a tsema 
+
+manifest objects we can realize with direct perception, hidden object we can realize with inference.. emptiness doesnt appear to direct perception for the first time until we have realized it via inference
+
+to realize something means to be incontrivertable with respect to it..
+
+1. to remove misconceptions about it, and to able to induce a certainty afterwards (ascertaining consciousness) that you realize that.. 
+
+**What constitutes a realization?**
+
+It has to be a conciousness that has eliminated misconceptions about something. Either through direct perception or inference. It's gotten at the object and it is conscious of that. It can produce a remembering consciousness that you perceived. To realize is different to believe, even if you believe correctly.
+
+**What constitutes a valid cognition (tsema)?**
+There are only 2 kinds. Sense direct perceiver and inferential cognizer. They realize their objects and instances of them that are fresh are valid because they have some kind of potency to pull subsequent cognizers along like the engine of a train. 
+
+pg.19
+
+facsimile - something that looks like the original
+
+**a knower which is mistaken with regard to its appearing object**
+
+There is some kind of mistake with what's appearing to it. All conceptual consciousnesses are mistaken with regard to its appearing object.
+
+In one sense the appearance of the mental image, and the appearance of the object are mixed and we cant differentiate one from the other. It seems like the appearance of the mental image is the object, but it is not. This how the higher tenets say all of our sense perceptions are. 
+
+The prasangika's would say that all objects appear to sense consciousnesses as truly existant.
+
+**All conceptions are facimiles to direct perceivers**
+
+There some kinds of non conceptual facimiles... like looking at the twirled sparkler. It looks like there is an 8 in space, but that sense object is mistaken. There isnt an actual firey 8.
+
+All conceptions are mistaken with respect to their appearing objects.  ex. the conception of impermanence appears to actually be impermanence
+
+When facsimiles of direct perceivers are divided, there are seven. This is because there are 6 conceptual and one non conceptual facsimiles of a direct perceiver
+
+1. **mistaken conception** - a thought apprehending sound as permanent
+2. **conventional conception**- an inferental cognizer which realized sounds to be impermanent 
+3. **inferentional conceptions** - a thought which is a mind apprehending a sign .. a consciousness which is the cause of having an inference.. they arent the inference, but the cause of the conception
+4. **conceptions arisen from inference** - thought which arises after an inferential cognizer .. because its still a conceptual mind
+5. **memory conceptions** - a thought which today remembers an object of the past .. it might appear to be very clear
+6. **wishing conceptions** - a thought which today wishes for an object of the future .. day dreaming 
+
+There are 4 nonconceptual facsimiles which are a sense consciousness
+
+1. **cause of error exists in the basis** - an eye impaired by an obscuring disease
+1. **cause of error exists in the abode** - sitting in a boat which sees the trees as moving when the boat is moving ... so when you are moving
+1. **cause of error exists in the object** - quickly whirling firebrand to a sense consciousness that sees a wheel of fire
+1. **cause of error exists in the immediately preceding condition** - a disturbed by hatred that sees the earth as red
+
+
+
+generally characterized phenomena are permanent
+specifically characterized phenomena are impermanent
+
+## Inferential Prime Cognizer
+
+- a new incontrovertible determinative knower that is directly produced in dependence on a correct sign which is its basis
+
+**determinative knower (zhen rig)** - synonym of conceptual mind .. determines/weighing its object..doesnt know it directly .. its imagining, knowing it via imagination .. thinks 'this is that'
+
+**correct signs** - correct reasoning .. could mean the whole sylogism
+
+an inferential cognizer has to be incontrivertable
+
+When inferential cognizers are divided there are 3: 
+
+1. **inferential cognizer by the power of the fact** - inferential cognizer that realizes that sound is impermanent through sign of being a product. All phenomena are empty because they are dependent arisings
+2. **through renown** - an inferential cognizer which realizes that it is suitable to to express the rabbit-possessor by the term moon from the **sign of its existing among objects of thought**.. anything that exists among objects of thought can be called anything.. there are no names that exist inherently in objects. This is necessarily an inferential cognizer by the power of the fact, so its a particular variation of the first. 
+3. **through belief** - inferential cognizer which realizes that the scripture, "From giving, resources, from ethics, a happy migration," is incontrovertible with respect to the meaning indicated by it by the sign of it being a scripture free from the three contradictions.. you cant logically by the 2 previous types know that giving will create wealth... this is a deeply hidden phenomena .. **belief in a valid person who predicated that.. you have to verify that that person is valid.. then verify the scriptures.. interpretable vs. definitive** .. you cant know deeply hidden phenomena by the power of the fact 
+
+**Terminologically divided** means it sounds like its a division, but its not actually a division
+
+When inferential cognizers are terminonologically divided there are two:
+
+1. **inference for oneself** - an inferential cognizer
+1. **inference for another** - correct proof statement .. this is not an inferential cognizer. It's not an actual inferential cognizer, but it can induce a inference. Proof statements are what are given to others. If someone is holding a wrong view.. first you give them an absurd consequence of their belief. Then propose **proof statements** to them that establish in their mind the establishing cognitions (the mind apprending a sign)
+
+This division is terminological, because whatever is an inference must be a consciousness, and inference for another, a proof statement, is sound - matter - and not consciousness. **Thus whatever is an actual inference is necessarily an inference for oneself.**
+
+
+
+all depend on correct reasoning
+
+a sign in a sylogism is a logical mark 
+
+
+
+
 
 
 
