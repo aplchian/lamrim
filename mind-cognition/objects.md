@@ -497,10 +497,47 @@ all depend on correct reasoning
 
 a sign in a sylogism is a logical mark 
 
+# 8
 
+- manifest phenomena initially ascertained by sense direct perceiver
+- hidden phenomena initially ascertained by inferential phenomena depending on ordinary sign
+- deeply hidden phenomena can be inferred by power of belief in valid person
 
+uncommon empowering condition for mental consciousness is a previous moment of consciousnes.. can be sense consciousnes, mental consciousness
 
+**what are the conditions necessary for consciousness to arise?**
 
+3 conditions:
+
+- object condition (referent) 
+- empowering condition 
+- immediately preceding condition
+
+**What are the 3 divisions of sense direct perceivers?**
+
+- prime
+- subsequent
+- inattentive (object appears but is not ascertained)
+
+**what are the possible apprehended objects of yogic direct perceivers?**
+
+Only objects that are conducive towards liberation such as subtle impermanence, gross and subtle selflessness of persons, 4 noble truths, etc.
+
+**What is the referent object of a conception grasping toward self of persons according to prasangika?**
+
+grasping toward self of person means not just apprehending a self of persons, but ascending to it, believing it
+
+the conceived object is an inherently existant person
+
+the referent object is not the object being determined / conceived, its that object which you are referring to
+
+there is an ignorance in our consciousness that refers to mark, a conventionally existant mark, and conceiving of that conventionally existing person as inherently existant
+
+so the answer is the conventially existant person
+
+**What is its conceived object?**
+
+58:58
 
 
 
