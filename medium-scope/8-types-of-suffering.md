@@ -171,7 +171,7 @@ You are subject to many uncomfortable, painful, and invasive procedures. Things 
 
 The ultimate result of sickness is that you will have to separate from this life. All of the harsh treatments may help for some time. You may live a few more months or years. In the end if you do not die from other causes, sickness will cause you to separate from this life. When that time comes, and you see that you are not going to recover from this illness, that there is no hope, that now you are going to have to die -- your inner mental anguish will increase.
 
-### 3. The Suffering of Death
+### 4. The Suffering of Death
 
 5 points
 
@@ -200,7 +200,7 @@ You will leave behind not only relatives, but also your friends, students, teach
 
 At the time of death you not only have to leave behind external things, but also your own body. The body that you had in the mother womb.. the body that has been with you every moment of this life -- has to be left behind.
 
-#### 5. At the time of death you experience terrible pain and happiness
+#### 5. At the time of death you experience terrible pain and unhappiness
 
 At the time of death you go through so many powerful experiences. Your family and friends gather around you crying and trying to help you, but there is nothing they can do to help you. You feel them slipping away. Everything familiar is slipping away. Now you are facing the unknown. A future that is completely black and uncertain. `Where will I go? Am I going to hell? Am I headed to painful horrors in my next life?`
 
@@ -219,11 +219,105 @@ Shantideva
 
 **When you meditate on these points, you should not think that they are just fantastic tales, but analyze your situation until you realize that the fundamental process that is being described here is real life and death.**
 
+### 5. The Suffering of Encountering the Unpleasant
+
+5 points:
+
+#### 1. By merely encountering your enemies, you suffer and are made unhappy'
+
+Once you have decided someone is your enemy, all you have to do is meet him on the street, or see him across the room, and immediately you feel angry and disturbed
+
+#### 2. You fear that you will be punished by them
+
+When you have enemies you are always fearful of what they might do to you. You always feel that you must be on guard against actions their actions and schemes. This causes great anxiety and stress and can make life quite difficult at times.
+
+#### 3. You fear that they will spread malicious rumours about you.
+
+They may be talking about your back, etc. With this kind of malicious gossip going on, you never know what people are thinking about you.
+
+#### 4. You dread dying
+
+Of course the most unpleasant thing you have to meet is death itself. You may not worry about it when you are young, but as you get older, the prospect of death can become a real source of anguish. Especially if you have not used your life meaningfully by preparing for death. If you have wasted your life, having created all sorts of nonvirtuous karmic potentials, then you will really have something to dread.
+
+#### 5. You fear that, because of non-Dharmic actions, you are destined for a lower rebirth.
+
+All nonvirtuous actions are contrary to Dharma teachings. If you know you have commited many such actions, you will certaintly worry about your next rebirth. Knowing you are likely to go to a miserable realm, your suffering will actually begin in this life, because you will be possessed by fear, sorrow, and regret.
 
 
+### 6. The Suffering of Separating from the Pleasant
+
+This point is illustrated by 5 manifestations of the pain of being seperating from cherished friends and relatives
+
+#### 1. When you are separated from loved ones, grief arises in your mind
+
+The day will eventually come when you have to leave your loved ones forever, and when that time arrives you will be overwhelmed by grief.
+
+#### 2. When you are separated from loved ones, you mourn audibly
+
+Often these feelings of loss are so powerful that people express their grief with sobbing, wailing, screaming, and other verbal expressions of sorrow.
+
+#### 3. When you are seperated from your loved ones, it causes you to harm your own body
+
+`beating your breast` .. `tearing out your hair` .. some even take their own lives
+
+#### 4. When you recall the qualities of the departed, you yearn for them and feel depressed
+
+You have such fond and treasured memories of the person you have lost, but now you realize that you will never see him or her again. Now the memories themselves become a source of sorrow.
+
+#### 5. You an no longer enjoy those you have lost
+
+If your loved ones were present, you could enjoy their company and all the pleasure that it brought you. But now they are gone and you can never access those feelings again.
+
+**In short, you will have to separate from every single thing that brings you happiness and pleasure in this world. That is the nature of your condition. You can do nothing to prevent that seperation and you have no control over when it will happen. You are under the control of karma and the afflictions, and that itself is great suffering. You should meditate on these 5 points until they are integraed with your mind**
 
 
+### 7. The Suffering of Not Getting What You Want
+
+In the course of our lifetime we have so many desires and often they just end in dissapointment. Often we work really hard to acheive something we really want -- job, marriage, etc -- but we fail to acheive that goal despite our efforts. **The are examples of the suffering of not getting what you want.**
+
+The way to meditate on these to to think about the things you desire but do not obtain -- wealth,fame, honor, love, and so forth. 
+
+When you have a strong desire for an object but fail to obtain it, you experience the same type of suffering we spoke about in the previous section.
 
 
+ex:
+- farms who work to grow crops, but nothing grows
+- business people who spend many hour trying to build a business, but they end up going bankrupt
+
+You should add examples from your own experience, using your own intelligence and insight.
+
+**The point of these meditation is to convince your own mind of the truth of the suffering nature of samsaric experience. To plant that insight into your mental continuum, it is very useful to relate these ideas to your own experience, because that is what will make it real for you.**
 
 
+### 7. The Suffering of the Appropriating Aggregates
+
+**The Buddha said, "In sum, the five appropriating aggregates are suffering."**
+
+Here we concentrate on the meaning of that statement. In what way are the 5 aggregates the very nature of suffering?
+
+First it is useful to understand why call these "appropriating aggregates"
+
+**Appropriating** has the sense of 'taking' or 'grasping' - it means to grasp - out of attachment to things of the present, and out of desire for things of the future - not wanting to lose those things, wanting them to remain forever. It is in this sense that the 5 aggregates are appropriating or grasping.
+
+This is a case of 'applying the name of the cause to the result.' the term 'appropriating' carries the sense of attachment and desire, which are the cause and name is given to the aggregates which are the result. Think of the term 'wood fire'.. 'fire' is the result, and it arises from 'wood', the cause.. the name of the cause is given to the result and we call it 'wood fire'
+
+The combination of these 5 aggregates makes up our mind-body continuum.
+
+**The cause of these 5 aggregates is previous attachment and desire, which created karma, which brought this combination of aggregaes into being. Therefore the name of the cause, appropriating attachment and desire, is given to the result, the 5 aggregate.**
+
+Because of the cyclic nature of samsara, we can also look at this as the name of the result given to the case. We have taken these 5 aggregates and in this life we are constantly creating attachment and desire, and that name is given to the cause which is the 5 aggregates. An example of this is an apple tree - 'a tree that produces an apple'. The tree is the cause, but the name of the result, apples, is given to the cause and we call it an apple tree. 
+
+**Why did the Buddha say that the nature of these 5 appropriating aggregates is suffering? They are suffering in 5 ways:**
+
+
+#### 1. They are vessels of future suffering.
+
+What do these 5 aggregates accomplish? The present aggregates bring future suffering; they are a vessel linking the current mind-body continuum to future misery. By creating karma out of attachment and desire, they construct future unhappiness, and perpetuate suffering into future lives. In other words, by merely taking these aggregates in this life you insure future suffering.
+
+#### 2. The five appropriating aggregates are vessels of suffering that already exists
+
+As you know, there is plenty of suffering that already exists in this life. It is due to the fact that you have taken this samsaric body that you are subject to sickness, aging, seperating from things you want, meeting the things you dont want, and death.
+
+#### 3. The are vessels of the suffering of pain
+
+Having taken this body, you are subject to all the mental and physical ills, discomforts, dissapointment, and pain, that we commonly call "suffering" in this world. The most obvious form of suffering is called the "suffering of pain" or "suffering of suffering". This mind-body continuum made up of this combination of aggregates, is the vessel for all these miseries. This and the next 2 types of suffering will be elaborated upon later when we explain "the three types of suffering"
