@@ -321,3 +321,51 @@ As you know, there is plenty of suffering that already exists in this life. It i
 #### 3. The are vessels of the suffering of pain
 
 Having taken this body, you are subject to all the mental and physical ills, discomforts, dissapointment, and pain, that we commonly call "suffering" in this world. The most obvious form of suffering is called the "suffering of pain" or "suffering of suffering". This mind-body continuum made up of this combination of aggregates, is the vessel for all these miseries. This and the next 2 types of suffering will be elaborated upon later when we explain "the three types of suffering"
+
+#### 4. The are vessels of the suffering of change
+
+The suffering of change means that all samsaric pleasure transforms into some form of suffering. Happiness switches into misery. Everything changes. **It is the nature of these 5 aggregates that when some happiness or pleasure arises, it cannot be sustained or increased indefinitely, but inevitabley changes into dissatisfaction and suffering.**
+
+The 5 aggregates are vessels of the suffering of pain and the suffering of change because of this inseperable connection with negative tendencies of karma and afflictions. The negative tendencies make the body-mind continuum like an open wound, always sensitive to contact and ready to create pain. The negative tendencies are like the seed or potential, always present,for every experience to turn into suffering.
+
+Although at the moment you may feel good and everything is pleasant, that happiness can easily turn into displeasure or pain at any moment. **The conditions for that are always here, because your aggregates are not pure. They are contaminated by the negative tendencies, loaded with the potential for pain.**
+
+When you are contermplating these points you need to realize this isnt just some philosophy, but this is actually what is happening. But you hide and ignore it, because you are the disciple of ignorance. 
+
+**Ignorance tells you that there is this huge "I", which is the most important thing. It tells you to make this  "I" feel happy. Ignorance tells you that this "I" will last forever, and if you can make it happy, that happiness will last forever. And you follow this advice. You use your discriminating wisdom to try to fashion stable happiness our of samsaric objects and conditions. The whole point of these meditations is to redirect your wisdom, to enable you to see things as they truly are, not the way you fantasize them to be.**
+
+#### 5. The are vessels of the suffering of being conditioned
+
+As soon as they are born, the 5 appropriating aggregates have the nature of this suffering of conditionality, because anything that is conditioned by karma and afflictions has this nature. Sometimes this is called **pervasive suffering**. It is the suffering nature that pervades all conditioned existance because this existance is completely under the power of karma and the afflictions.
+
+When you realize the truth of suffering by means of the union of calm abiding and special insight, you vividly realize how this whole samsaric situation is pervaded by this subtle nature of suffering. Until then even though you are meditating on this as the way things are, it will not be completely believable. 
+
+Its like how kids see fire and poision as attractive objects, but they actually hurt them. Its the same. 
+
+In the end you must realize this most subtle level of pervasive suffering. **That the whole of cyclic existence is conditioned by karma and afflictions and is therefore in the nature of suffering.**
+
+**The whole of cyclic existence is in the nature of suffering because it is conditioned by karma and the afflictions.**
+
+It is this deep inescapable suffering nature of *everything* within cyclic existence that inspires the thought of renunciation. **If you have not yet felt this attitude of disenchantment that comes from seeing the faults of this whole situation, then a genuine, uncontrived thought of renunciation will not arise.**
+
+Therefore this meditation is of the utmost importance. **Realizing the fundamental faults of cyclic existence, its conditionality, and therefore its nature of suffering, is a prerequisite for engaging in either the hinayana path of acheiving emancipation for yourself, or the mahayana path of great compassion for all living beings**
+
+If you haven't produced this sincere thought of renunciation -- wanting freedom from cyclic existence for yourself -- there will be no way to produce bodhichitta - which wishes for freedom from samsara for all living beings.
+
+Therefore, whatever path you plan to engage in, it is essential to produce the though of renunciation. To do this you need to rely on scriptures and authoritative commentaries by masters who evidence a pure understanding of the Buddha's intent. **You need to study those scriptures, and then when you find some understanding, you need to meditate on that, using analytical meditation, over a long period of time.**
+
+**This means you proceed topic by topic, contemplating each one until you are able to fully convince the mind, to draw the mind in that direction. You use everything at your disposal, inferential knowledge, scriptural, experiental. You put everything together and then concentrate, focus on that. If you practice that way, beginning with an educated understanding, then applying meditation that is able to change your ordinary perception, you will finally reach and unshakeable realization.**
+
+This presentation of the divisions of suffering comes from Asanga.
+
+```
+Wherever we are born among the six types of beings, suffering will arise, such as sickness and death. When there is a cause of sickness, there will be sickness. When the cause of death appears, we will die. These do not arise as some sort of unsuitable or accidental events; it is the very character or nature of cyclic existence. As long as we abide within cyclic existence, there is no escaping it. If we are disgusted by this, we must eliminate birth. For that, we bust eliminate its cause.
+
+Geshe Potowa
+```
+
+What he is saying here is that there is nothing strange about the arising of misery in the world in which we live. It is not something that is not supposed to happen. When we have bodies whose nature it is is to be prone to being sick -- it is not too surprising that we get sick. Aging, sickness, and death happen because there are causes for them to happen. This is the nature of cyclic existence; this is what defines samsara. 
+
+**The nature of fire is to burn. If you dont want to get burned you need to get away from fire. As long as you remain within cyclic existence, there is no way to escape these suffering outcomes. If you don't like it, the only thing you can do is to get out of the whole situation. The only way to do that is to end birth in cyclic existence, and to do that you must eliminate its cause. What is the cause? Karma and the afflictions. They must be eliminate from the root, and you do that by applying the antidotes as they are explained her in the steps of the path to enlightenment.**
+
+
