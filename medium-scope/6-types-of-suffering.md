@@ -180,3 +180,35 @@ Regardless of how rich, splendid, or beloved you may be, it all ends. No matter 
 
 ## 6. The fault of having no companions
 
+At the time of birth you cannot bring friends along as companions. At the time of death you cannot say to your loved ones, "I am going to die now, you must die with me!" You have to go along, noone can take a share of your misery. Therefore, what use are friends who only create hindrances?
+
+What is being critisized here is the attachment to ones friends and loved ones based on unrealistic expectation that they are a source of stable happiness. The **attachment** is the hindrance that is the enemy. Out of that attachment you perform all kinds of negative actions, which create all the sufferings and all the obstacles to liberation. 
+
+When you come to understand the nature of cyclic existence, it does not produce aversion to other living beings. Quite the contrary. 
+
+**The real friend, the best friend in cyclic existence, is virtue -- virtuous mental qualities and virtuous actions. This is what leads to a better life, a higher rebirth, and finally to total cessation of this suffering, samsaric life. That is the kind of friend you can rely on, that is the kind of friend you can trust.**
+
+--
+
+In conclusion these 6 types of suffering can be sorted into 3 categories:
+
+1. There is nothing in cyclic existence that can be trusted or relied upon to provide true and lasting benefit
+2. However much you indulge in the pleasures of cyclic existence, in the end you will never find perfect satisfaction
+3. You have been experiencing this suffering, samsaric nature since beginningless time
+
+The first of these 3 can be divided further into 4 parts.
+
+**1a.** There is no security in obtaining a body. Wherever you are born in cyclic existence, your condition whether high or low -- will eventually change and you will have to take a new body
+
+**1b.** There is no security in things that benefit or harm you. Relationships with friends and enemies are not static and cannot be trusted. The dearest friend can suddenly change into the most undesirable enemy. This corresponds to the 'fault of uncertainty' -- the 2nd of the six
+
+**1c.** There is no security in obtanting the wonders of cyclic existence, because all high things eventually become low. This corresponds to 'the fault of constantly fluctuating from high to low states' - the 5th of the six
+
+**1d.** There is no security in companions, because when you die, you go without companions. This corresponds to 'the fault of having no companions.' - the 6th of six
+
+The second category in this 3 part format -- 'in the end you will never find perfect satisfaction' -- coresponds to 'the fault of insatiability'
+
+The third category - 'you have been experiencing this suffering, samsaric nature since beginningless time' - corresponds to the fault of repeatedly losing ones life. - the third of the 6 types of suffering.
+
+
+This condensed presentation gives you another format fro meditating on these 6 unnatractive qualities of cyclic existence. 
