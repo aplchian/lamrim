@@ -333,6 +333,163 @@ Gonpawa
 
 Study the abhidharma texts by Vasubandu and Asanga. **First you must know what the afflictions are, and be able to recognize them when they arise.** You need to know everything about these internal enemies in order to be able to destory them. Just like in war you need to know everything about your enemy. This is why we explain this subject in such detail. You first need to educate yourself equip yourself, and then you can engage in the struggle to oppose and eliminate the forces that do you so much harm.
 
-## A. How That Causes Karma to be Accumulated
+## B. How That Causes Karma to be Accumulated
+
+In this section we will look at  the way those afflictions cause karma to be accumulated.
+
+This has 2 parts:
+
+1. Identifying the karma that is accumulated
+2. How karma is accumulated
+
+
+### 1. Identifying the karma that is accumulated
+
+This topic has 2 parts:
+
+1. Karma that is intention
+2. Karma that is intended action
+
+What is the meaning of karma? Karma is explained in 2 aspects. 
+
+**Karma that is intention** - the mental intention that motivates a physical or verbal action. On the basis of this motivation, an action is actually performed.
+
+**Karma that is intended action** - There are 2 systems of thought regarding the meaning of this type of karma. 
+
+The lower abhidharma system by Vasubandu holds that this karma is the actual physical action of body or speech that is motivated by intention. For these schools,this type of karma is a physical action.
+
+In the Mahayana abhidharma system presented by Asanga in the Compedium of Knowledge, karma is always mental. So here, the karma is the thought - mental action - that accompanies the physical or verbal action motivated by the intention. **Although there is a physical act, that does not constitute the karma; instead, karma is the purely mental action that accompanies the physical one.**
+
+
+### 1. Karma that is intention
+
+```
+What is intention? It is is a function of consciousness that is a mental action initiating the engagement of the mind in virtuous, nonvirtuous, and neutral activities.
+
+Asanga Compendium of Knowledge
+```
+Whatever physical or verbal action you perform, there is always a virtuous, nonvirtuous, or neutral motivation that lies behind it, intending it and initiating it. **That is the karma that is intention, or intention karma.**
+
+**Intention is a mental factor whose function is to move and induce the primary mind with which it is concomitant toward an object.**
+
+The primary mind is said to be similar to the hand, and the mental factors are like the individual fingers.
+
+The wholesome or unwholesome nature of the primary mind is determined by the presence of wholesome or unwholesome mental factors. **If an unwholesome mental factor is present, the entire mind becomes unwholesome. In the same way that a pinch of salt added to water causes a salty flavor to pervade every drop of water.**
+
+In each cognitive action the *primary mind* apprehends the basic presence of the object. The mental factor of **feeling** experiences the object as pleasant, unpleasant, or neutral. The mental factor of **discrimination** identifies the object by discerning its individual characteristics. The mental factor of **intention** (ie karma) directs and propels the mind towards the object and moves the mind to become invloved with that object. **Just as a magnet moves a peice of nearby iron, intention moves the mind toward engagement with beneficial or harmful objects.**. The mental factor of **contact** acts to connect the three elements of a cognition: the object, faculty, and primary mind. This coming together of the three activates the sensory or mental faculty such that it becomes the basis for feeling of pleasure, pain, and indifference. Lastly the mental factor of **attention** focuses and stabilizes the mind on its object, not allowing it to move elsewhere.
+
+here explains the 5 characteristics shared by primary mind and mental factors.
+
+### 2. Karma that is Intended Action
+
+According to Vasubandhu's Treasury of Knowledge, karma that is intended action is any action of body and speech motivated by an intention. In this system, intended karma is the actual physical or verbal action initiated by intention karma.
+
+```
+Karma is intention and what it produces.
+Intention is mental karma.
+What it gives rise to  is karma of the body and speech.
+
+Treasury of Knowledge
+```
+
+The Vaibhasikas also divided this physical and verbal karma into two types: **revealing** and **non-revealing** karma. A karma is revealing if it allows others to see ones intention. So when you do something with your body or speech others can see or hear it and see the intention. 
+
+**Non-revealing karma** is the ongoing karmic potentiality that is instigated or set in motion by that physical, revealing action of body or speech. It is the form in which the karma persists in the psycho-physical continuum. Although it is form -- a material substance based on the four great elements - it is supremely subtle, invisible, and even non-obstructive. **This is the Vaibhasika view of the way karma persists in the continuum of an individual.** Proponents of this view say that both revealing and non revealing karma are form; they are physical. This conception of revealing and nonrevealing karma was on of the key concepts in the Vaibhasika karmic system that Vasubandhu criticizes and tries to refute. He rejected the notion that karma was in any way physical.
+
+The Sautrantika, Yogacara, and Madhyamaka schools maintain that intended karma is the **thought** that accompanies the action at the time of performing the action. They insist that **the mind is the thing**; physical action is not in and of itself karma.
+
+For ex with killing.
+
+First there is an intention to kill, which sets in motion a second thought, a second intention, that actually moves the body during the action of killing. **It is that thought which moves the body at the time of the action, that constitues the intended karma.** In the case of an action of speech, it is the thought that moves the voice at the time of the act that constitues the karma of speech; it is not the sound, or the physical movement that makes the sound. 
+
+It all depends on the intention that lies behind the physical action, and not the physical action itself. For this reason, the upper schools insist that karma is mental. **First there is intention karma which sets the action into motion, and then there is intended karma - which moves the body or voice at the time of the action.**
+
+
+### Virtuous and Nonvirtuous Karma
+
+Virtuous karma can be subdivided into 2:
+
+1. contaminated Virtuous karma
+1. uncontaminated Virtuous karma
+
+In general, contaminated phenomena are those that nourish or increase afflictive states of mind -- that is, states that lead to suffering and do not lead to liberation. Contaminated karma is basically action that is motivated by the obscuring afflictions. This is action that is rooted in affliction and, once it is performed, that nourishes future afflictions.
+
+Contaminated karma is also of 2 types, that which exists in the mind of an arya, and that which exists in the mind of an ordinary individual. We will look at arya later.
+
+**Basically, cyclic existence is produced by contaminated action performed by ordinary individuals, and that is what we will focus on here.**
+
+There is also another way to divide karma:
+
+1. meritorious - virtuous karma of the desire realm - only in desire realm
+2. demeritorious - non-virtuous karma of the desire realm. All non virtious karma happens in the desire realm. So all nonvirtious karma is demeritiourious
+3. immoveable - contaminated virtuous karma of the form and formless realms
+
+```
+Meritorious karma is virtuous karma of the desire realm.
+Immoveable karma is karm in the upper realms
+
+Treasury of Knowledge
+```
+
+Why is it called immoveable? In the desire realm where we live, virtious and non virtuous karma are moveable or variable. For ex. if you create a virtuous karma that should bear fruit as a result in a birth in a deva realm, under certain conditions, the result of that karma could change to birth in another realm, perhaps a lower realm or as a human. However in the form and formless realms, when you create karma that should ripen in some particular level, it will never ripen in another level - it doesnt change. 
+
+```
+Why? Because karma that should ripen in one level
+Does not move to another level.
+
+Treasury of Knowledge
+```
+
+## 2. How Karma is Accumulated
+
+
+
+
+.. lost all notes here... :(
+
+We can say that all of our actions are done in order to find happiness. Some kind of mental happiness or physical pleasure. Nobody is trying to obtain suffering. Although we constantly create karma that is the cause of suffering, nobody is creating karma with the intention of producing suffering for themselves. Therefore, we can understand the process of accumulating karma in two categories:
+
+1. Accumulating karma for pleasant feelings
+2. Accumulating karma for neutral feelings
+3. 
+
+## a. Accumulating karma for pleasant feelings
+
+### i. Accumulating karma for the pleasure that comes from enjoying desirable objects: Sights, sounds, and the like
+
+Here we are mainly talking about sensual pleasure: the pleasurable experience of form, sounds, taste, smell, or touch. Most of the pleasures of the desire realm, which include the 3 lower realms, humans, and the desire realm devas  - are sensual pleasures. **In the desire realm, most karma is accumulated in the effort to achieve some type of sensual enjoyment.**
+
+**There are two types of action intended to achieve sensual pleasure. If you object is to acheive sensual pleasure only in this lifetime, then you are mainly accumulating non meritourious karma. In contrast, if you are mainly seeking pleasure for a future life, you are accumulating meritorious karma -- such as observing ethical conduct, giving charity, and practicing patience. When your concern is only for this life, even when you try to practice virtue, by meditating, making offerings, etc. there is actually no virtuous intent because you are acting only for the sake of immediate pleasure. Therefore your actions are demeritorious karma** 
+
+There is a Kadampa saying that goes, "If circumambulate merely for the sake of this life, it will become cause of birth in hellp, the hungry ghosts, or the animals."
+
+### ii. Accumulating karma for gaining bliss in the meditative concentration, after you have rejected attachments to external sensual pleasures
+
+Thus far we have been talking about pleasure coming from external objects. For the devas of the form and formless realms. Such beings are not attracted to sensual pleasure. It seems so coarse to them that it feels almost like suffering. The pleasure they enjoy comes from meditative concentration. This is much deeper and more subtle than externally based pleasure.
+
+This type of bliss here is the special kind of mental happiness that is experienced in the first 3 concentrations of the form realm. When meditators reach these higher levels of meditative states, they are accumulating immoveable karma, and that karma becomes the cause for them to be reborn in one of the first 3 levels of the form realm.
+
+## b. Accumulating karma for neutral feelings
+
+When you have turned away from attachment to sensual pleasure, and on top of that you have lost interest in mental happiness of meditative bliss, you may engage in activities for the purpose of experiencing neutral feelings. Then you will be accumulating immoveable karma that will be the cause for rebirth in the 4th concentration up through the formless absorptions and their highest level: the peak of existence.
+
+---
+
+This explanations follows the though of Vasubandhu accoerding to his *Treasury of Knowledge* and its autocommentary. 
+
+**The key to this system is understanding the following: those beings who accumulate karma for the sake of sensual pleasure are born in the desire realm; those beings who accumulate karma for the sake of meditative bliss are born in the first three levels of the form realm; and those beings who accumulate karma for the sake of neutral feeling of the deepest meditative absorption are born from the fourth concentration up to the peak of existence.**
+
+Tsongkhapa then takes this to its logical conclusion. All of these beings are creating a particular type of karma in their quest to experience some form of happiness and freedom from suffering. Because of their attachment to those gross and sublt levels of pleasure, their karma becomes the cause of future rebirth in cyclic existence. **However, if you reverse that logic: if you feel nothing but revulsion for samsara - from the hell realms up to the peak of existence - and you engage in virtuous actions purely for the sake of acheiving complete freedom from samsaric experience all together, you will leave cyclic existence further and futher behind and emancipation will grow nearer and nearer.**
+
+With this topic we have concluded the discussion of karma in the Lam Rim Chenmo
+
+**By studying thinking about, and meditating on the details of karma, you can integrate your understanding with your way of life, and this will create a solid foundation for progress on the path.**
+               
+
+
+
+
+
+
 
 
