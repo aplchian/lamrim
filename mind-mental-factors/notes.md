@@ -13,17 +13,19 @@ Five divisions of mental factors
 
 **Three types of faith**
 
-1. Clarifying Faith
-2. Faith of Conviction
-3. Wishing Faith 
+1. **Clarifying Faith** - a clear mind engendered by seeing the excellent qualities of those so endowed, such as the three jewels. When this faith is generated, the murkiness of the mind is cleared away, whereupon all excellent qualities of realiztion become suitable to arise in one's continuum.
+2. **Faith of Conviction** - gaining conviction through contemplating the modes of dependent arising, cause and result, and so forth that are taught by the conqueror
+3. **Wishing Faith** - recognizing the delusions can be eliminated to attain nirvana / enlightenment.. the faith thinking 'I shall definitly attain them' 
 
 
 
 Pleasure is in the nature of suffering, because the pleasure is a relief of one some pain.
 
-The function of faith is as a support for aspiration. 
+The function of faith is as a support for aspiration. Aspiration / desire.
 
-**In order to generate aspiration, ones needs to see the excellent qualities, as well as possess the faith of conviction.** For this reason, faith is praised more than once as the foundation of all virtious qualities in the scriptures and their commentaries. 
+This is what will overcome the initial laziness.
+
+**In order to generate aspiration, ones needs to see the excellent qualities(clarifying faith), as well as possess the faith of conviction.** For this reason, faith is praised more than once as the foundation of all virtious qualities in the scriptures and their commentaries. 
 
 Thus, all wholesome qualities are companions of faith. 
 
@@ -108,13 +110,19 @@ A wisdom of individual investigation that is able to serve as the antidote to ig
 
 has the function of increasing the 4 types of wisdom. 
 
+A clarity and sharpness of mind that dispells the bewilderment about an object.
+
+It itself is not wisdom, but accompanies wisdom. 
 
 
----
 
+— 
 
+If you want to get rid of the afflictions, then these 3 roots of virtue act as the remedy to these states. To develop these, is the very path of buddhist practice. 
 
+**All paths and stages are for the sake of abandoning the three poisons as well as their imprints, and all misconduct definitly arises from one of the three poisons.**
 
+Their function is specified as acting as a "support fo effective restraint from misconduct"
 
 
 

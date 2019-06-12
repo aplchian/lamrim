@@ -67,10 +67,3 @@ But, when we examine whether things inherently exist, we are left with 2 possibi
 
 This is a powerful rejection of the view that things are not existent,  not nonexistent, not both, not neither.
 
-
-
-
-
-
-
-བྱང་ཕྱོགས་མཁས་རྒྱུའི་དབུས་སུ་ལྷམ་མེ་བ།།
