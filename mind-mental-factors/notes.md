@@ -13,9 +13,9 @@ Five divisions of mental factors
 
 **Three types of faith**
 
-1. **Clarifying Faith** - a clear mind engendered by seeing the excellent qualities of those so endowed, such as the three jewels. When this faith is generated, the murkiness of the mind is cleared away, whereupon all excellent qualities of realiztion become suitable to arise in one's continuum.
-2. **Faith of Conviction** - gaining conviction through contemplating the modes of dependent arising, cause and result, and so forth that are taught by the conqueror
-3. **Wishing Faith** - recognizing the delusions can be eliminated to attain nirvana / enlightenment.. the faith thinking 'I shall definitly attain them' 
+1. **Clarifying Faith དང་བའི་དད་པ།** - a clear mind engendered by seeing the excellent qualities of those so endowed, such as the three jewels. When this faith is generated, the murkiness of the mind is cleared away, whereupon all excellent qualities of realization become suitable to arise in one's continuum.
+2. **Faith of Conviction ཡིད་ཆེས་ཀྱི་དད་པ་** - gaining conviction through contemplating the modes of dependent arising, cause and result, and so forth that are taught by the conqueror
+3. **Wishing Faith་ མངོན་འདོད་ཀྱི་དད་པ།** - recognizing the delusions can be eliminated to attain nirvana / enlightenment.. the faith thinking 'I shall definitly attain them' 
 
 
 
@@ -33,7 +33,7 @@ Thus, all wholesome qualities are companions of faith.
 >
 > -Tsongkhapa
 
-### Shame ངོ་ཚ་ཤེས་པ།
+### Shame / Self Respect ངོ་ཚ་ཤེས་པ།
 
 >  It is an avoidance of misdeeds on account of oneself. It has the function of acting as a support for effective restraint from misconduct
 
@@ -124,5 +124,57 @@ If you want to get rid of the afflictions, then these 3 roots of virtue act as t
 
 Their function is specified as acting as a "support fo effective restraint from misconduct"
 
+To develop these 3 mental factors is the very heart of buddhist practice. For those who genuinly strive for liberation this is the path whereby to fully overcome the inner enemy.
 
+### Effort བརྩོན་འགྲུས།
+
+The mind that is enthusiastic about virtue is effort. It is the antidote for laziness and a mind that is enthusastic about virtue.
+
+The Lam-Rim explains three types of effort:
+
+1. armor-like
+2. gathering of virtuous qualities
+3. Enacting the welfare of beings
+
+
+
+The Compendium of Knowledge teaches 5 types:
+
+1. Effort of armoring - a mental enthusiam developed prior to engaging in virtue - instilled through a wholesome intention
+2. Effort of application - enthusiastic when engaging in action
+3. Effort of non-inferiority - not thinking 'How can one such as I do this?'
+4. Effort of irreversibility - one cannot be diverted by other circumstances at the same time of engaging in virtuous activities
+5. Effort of non-complacency - not being complacent with some trifling virtue
+
+It is of utmost importance to know the following in accordance with the foremost Tsongkhapa from Lam Rim Chenmo
+
+1. the benefits of making effort
+2. the disadvantages of not doing so
+3. the way in which it stops its discordant class - the laziness of procrastination, the adherence to unwholesome activities, and indolence
+4. the way to practice the favorable conditions for effort, the four powers — belief, steadfastness, joy, abandonment
+
+You should understand all of this through the Way of the Bodhisattva and the Lam Rim Chenmo
+
+### Pliancy ཤིན་ཏུ་སྦྱངས་པ།
+
+This is the actual antidote to laziness.
+
+It is a serviceability of body and mind due to severing the continuum of unfavorable states of body and mind. It has the function of eliminating obscurations.
+
+It deposits an imprint so that the mind can be applied, however one wants, to a virtuous object of meditation, and that severs the continuum of unfavorible states of body and mind.
+
+Pliancy is of two types:
+
+1. physical pliancy
+2. mental pliancy
+
+### Conscientiousness བག་ཡོད།
+
+It is an awareness that accomplishes virtue within abiding in effort without coming under the influence of afflictions, and it guards the mind against contaminations.
+
+Cherishes the accumulation of what is wholesome and guards the mind against that which gives rise to afflictions.
+
+### Equanimity བཏང་སྙོམ།
+
+MF that without having to exert a great effort to prevent excitement and sinking, does not let the mind be affected by them. A quality ascribed t a state of mind in which detachment, non-hatred, non-bewilderment, and enthusiasm are present. It has the function of settling and leacing the mind in rest upon a wholesome object.   
 

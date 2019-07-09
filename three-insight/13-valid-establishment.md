@@ -14,7 +14,7 @@ It is quite inconsistent to call sensory consciousness 'perception' and also to 
 Candrakirti Commentary on the 400 Stanzas
 ```
 
-This refutation of the position that the visual consciosnesses and such are both perceptions and valid cognitions is a refutation of the assertion of th logicians.
+This refutation of the position that the visual consciosnesses and such are both perceptions and valid cognitions is a refutation of the assertion of the logicians.
 
 ```
 In order to teach these logicians, you question them closely.
@@ -29,7 +29,7 @@ Q: What is this conceptuality?
 A: It is the fluctuation and discrimination that is involved in the superimposition of names and types of objects. Because they are free from that, the 5 sensory consciousness engage only in the inexpressible intrinsic character of their objects. They are therefore called 'perceptions'.
 ```
 
-Hence, the logicians hold that a perception is a consciousness that is free from conceptuality and non-mistaken. It is non-mistaken in that it apprehends the intrinsic character of the object just as it is. Thus, all 5 consciousness comprehend the instrinsic characteristics of forms, sounds, etc.. this intrinsic nature is the object of these consciousnesses. Therefore it is in relation to the intrinsic character of these five objects they they consider such perceptions to be valid.
+Hence, the logicians hold that a perception is a consciousness that is free from conceptuality and non-mistaken. It is non-mistaken in that **it apprehends the intrinsic character of the object just as it is**. Thus, all 5 consciousness comprehend the instrinsic characteristics of forms, sounds, etc.. this intrinsic nature is the object of these consciousnesses. Therefore it is in relation to the intrinsic character of these five objects they they consider such perceptions to be valid.
 
 Candrakirti doesnt accept even conventionally that anything exists essentially or by way of its intrinsic character. **Thus, how could he accept that sensory consciousnesses are valid in regard to the intrinsic character of their objects?**  
 
@@ -53,7 +53,9 @@ Candrakirti
 
 Therefore, since Chandrakirti is refuting the logicians position that sensory consciousnesses are valid regarding the intrinsic character of objects, he need not refute the position that they are simply valid cognitions.
 
-Consequently, Candrakirti is not giving a general refutation of the position that there are valid cognitions among conventional consciousnesses. He refuts essentially existent valid cognitions and objects of comprehension that are contingently posited dependent-arisings.
+Consequently, Candrakirti is not giving a general refutation of the position that there are valid cognitions among conventional consciousnesses. He refutes ***essentially* existent valid cognitions and objects of comprehension** that are contingently posited dependent-arisings.
+
+
 
 ```
 Those are established through mutual dependence. When valid cognitions exist, then there are things that are objects of comprehension. When there are things that are objects of comprehension, then there are valid cognitions. However, neither valid cognitions nor objects of comprehension exist essentially.
@@ -61,7 +63,7 @@ Those are established through mutual dependence. When valid cognitions exist, th
 -Candrakirti
 ```
 
-**Therefore, if a sensory consciousness is unimpaired, -- that is, no eye disease or other internal or external cause of error is affecting it -- then it is accurate in conventional terms. It is mistaken in terms of appearance because, under the influence of ignorance, it apprehends its object as though it were intrinsically existent -- which it is not. Yet, this does not contradict its conventional accuracy.**
+Therefore, if a sensory consciousness is unimpaired, -- that is, no eye disease or other internal or external cause of error is affecting it -- then it is accurate in conventional terms. It is mistaken in terms of appearance because, under the influence of ignorance, it apprehends its object as though it were intrinsically existent -- which it is not. Yet, this does not contradict its conventional accuracy.**
 
 
 
@@ -85,7 +87,11 @@ Conventional consciousnesses and their objects are of two types: accurate in rel
 
 In this context you should not consider the impairment of being affected by ignorance to be a cause of impairment in this context -- even thought the object apprehended by ignorance does not exist even conventionally, as will be explained below.
 
-Candrakirti does not assert that contingent entities have intrinsic character or intrinsic nature even conventionally.
+
+
+**The argument here is: If a conventionally valid cognition's object is an inherently existent form, then that form must exist inherently, conventionally. But Chandrakirti does not say this. So, if that from does not exist inherently, conventionally, than you can't say that it is a valid cognition.**
+
+**Candrakirti does not assert that contingent entities have intrinsic character or intrinsic nature even conventionally.**
 
 Candrakirti makes it clear here that Madhyamikas do not accept what the Sautantrikas and Vaibashikas advocates ultimately, evenly conventionally. They dont believe in partless particles even conventionally. While those 2 asser that things like forms and sounds are true, Madhyamikas do accept the mere existance of these conventionally. So they dont reject everything.
 
@@ -97,7 +103,7 @@ Still, it is not impossible fo sensory consciousnesses to be valid cognitions th
 
 This is because the non-exisance of such an object is is established by a **reasoning consciousness analyzing whether things exist exist instrinsically**; it is not established by conventional valid cognition. Therefore, in terms of **conventional consciousness**, they are not mistaken.
 
-So in terms of conventional consciousness, if there is no fault in the eye for ex, and it sees the object correctly, in the view of **conventional consciousness** if it is not mistaken, but in the view of **reasoning consciousness analyzing whether things exist exist instrinsically** it is mistaken.
+So in terms of conventional consciousness, if there is no fault in the eye for ex, and it sees the object correctly, in the view of **conventional consciousness** it is not mistaken, but in the view of **reasoning consciousness analyzing whether things exist exist instrinsically** it is mistaken.
 
 ```
 Some dependently arise things -- such as reflections and echoes -- are false and appear to be false even to the ignorant. Some things -- blue and other forms as well as minds, feelings, etc - appear to be true. The final nature of things [that is, emptiness], does not appear in any way to those who are ignorant. Therefore that nature[emptiness], and whatever is false, even conventionally are not conventional truths
@@ -105,15 +111,25 @@ Some dependently arise things -- such as reflections and echoes -- are false and
 Candrakirti
 ```
 
-So, even a worldy consciousness can know that a reflection is false, so they are not posited as truths for the world, that is, for a **convetional consciousness**. Blue, and such are falsities, but a worldly consciousness cannot understand them as falsities, hence candrakirti posits them as truths for the world, that is, for a conventional consciousness..
+So, even a worldy consciousness can know that a reflection is false, so they are not posited as truths for the world, that is, for a **convetional consciousness**. Blue, and such are falsities— they are not inherently existent, but a worldly consciousness cannot understand them as falsities, hence candrakirti posits them as a conventional truths for the world, that is, for a conventional consciousness.
 
 Its thus possible to distinguish objects as true and false in terms of conventional consciousness. It is likewise possible to distinguish subjects as accurate and inaccurate in terms of conventional consciousness.
 
 Therefore, the Madhyamikas posit the sensory consciousnesses as mistaken.
 
-"Because ignorance obscures the nature of phenomena, we call it the concealer." Hence there is no contradictionin something being true for the concealer, that is, ignorance, and false for the conventional consciousness with which we refute the essential existence in phenomena.
+"Because ignorance obscures the nature of phenomena, we call it the concealer." Hence there is no contradictionmin something being true for the concealer, that is, ignorance, and false for the conventional consciousness with which we refute the essential existence in phenomena.
 
 The statements `Whatever is false even conventionally is not a conventional truth` refers to a conventional valid cognition which realizes that things like a reflections being an actual face are false. It cannot refer simply to forms and such being false in conventional terms.
+
+Conventional knowledge cannot establish that the sense consciousnesses are mistaken regarding the appearance of inherent existence. So from the perspective of conventional knowledge, ordinary sense consciusnesses are correct and thus valid.
+
+**A distorted conventionality is a conventional consciousness (mind not directly perceiving sunyata) that could otherwise know that its object does not exist as it appears— seeing a reflection as a real face. A correct conventional consciousness is a conventional consciousness  that could not otherwise know that its object does not exist at it appears — seeing a table as inherently existent.**
+
+It is only after engaging in ultimate analysis and understanding shunyata that one can understand that valid conventional consciosness and their objects are mistaken.
+
+
+
+
 
 
 
